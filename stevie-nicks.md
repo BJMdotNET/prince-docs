@@ -7,7 +7,9 @@ https://www.yahoo.com/entertainment/stevie-nicks-tom-petty-drag-125025298.html
 ## Wisdom from the first woman to make it into the Rock and Roll Hall of Fame twice
 
 **Rob Sheffield**
+
 **Rolling Stone***
+
 February 28, 2019
 
 > Stevie Nicks has the only kind of BDE that matters: Bella Donna Energy. The Fleetwood Mac gold dust woman is adding yet another sequin to her top hat by going into the Rock & Roll Hall of Fame as a solo artist, years after she got enshrined with the Mac. She’s the first woman inducted twice — as she puts it, “at the ripe and totally young age of 70.” She’s also hitting the road with Fleetwood Mac for the 2019 leg of their world tour, in their surprising new incarnation after a sudden split with Lindsey Buckingham.
