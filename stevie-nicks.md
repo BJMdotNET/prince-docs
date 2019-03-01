@@ -1,16 +1,6 @@
+# Stevie Nicks 
 
-https://www.rollingstone.com/music/music-features/stevie-nicks-interview-tom-petty-drag-queens-game-of-thrones-prince-801112/
-https://www.yahoo.com/entertainment/stevie-nicks-tom-petty-drag-125025298.html
-
-# Stevie Nicks on Tom Petty, Drag Queens, ‘Game of Thrones’ and Missing Prince
-
-## Wisdom from the first woman to make it into the Rock and Roll Hall of Fame twice
-
-**Rob Sheffield**
-
-**Rolling Stone***
-
-February 28, 2019
+From ["Stevie Nicks on Tom Petty, Drag Queens, ‘Game of Thrones’ and Missing Prince: Wisdom from the first woman to make it into the Rock and Roll Hall of Fame twice"](https://www.rollingstone.com/music/music-features/stevie-nicks-interview-tom-petty-drag-queens-game-of-thrones-prince-801112/) by **Rob Sheffield** for ***Rolling Stone*** on February 28, 2019:
 
 > Stevie Nicks has the only kind of BDE that matters: Bella Donna Energy. The Fleetwood Mac gold dust woman is adding yet another sequin to her top hat by going into the Rock & Roll Hall of Fame as a solo artist, years after she got enshrined with the Mac. She’s the first woman inducted twice — as she puts it, “at the ripe and totally young age of 70.” She’s also hitting the road with Fleetwood Mac for the 2019 leg of their world tour, in their surprising new incarnation after a sudden split with Lindsey Buckingham.
 > 
@@ -34,3 +24,4 @@ February 28, 2019
 > 
 > I don’t put the boots on until right before I walk up to the stage. But when my little foot goes into that boot, it is like Cinderella. All of a sudden I become me. I become six inches taller. I walk like an African queen. Halloween is my favorite day, but I never have to wonder: What am I gonna be for Halloween this year? A witch, of course. Wearing my Stevie Nicks clothes.
 
+(Also available [on Yahoo](https://www.yahoo.com/entertainment/stevie-nicks-tom-petty-drag-125025298.html))
