@@ -1,4 +1,4 @@
-# Chaka Khan
+# Chaka Khan and Miles Davis
 
 From [**"Brand New Dance"**](https://www.billboard.com/articles/news/8496614/chaka-khan-hello-happiness-interview) by **Gail Mitchell**, an article in the 9 February 2019 issue of ***Billboard*** magazine, in the section "The Beat - The pulse of music right now":
 
