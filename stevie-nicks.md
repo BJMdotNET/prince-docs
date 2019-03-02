@@ -1,5 +1,7 @@
 # Stevie Nicks 
 
+[![Stevie Nicks - Stand Back (Official Video)](https://img.youtube.com/vi/bwdDVZsz2es/0.jpg)](https://www.youtube.com/watch?v=bwdDVZsz2es)
+
 https://www.youtube.com/watch?v=bwdDVZsz2es
 
 --
@@ -73,3 +75,12 @@ From [**"Stevie Nicks Recalls Prince’s Surprise Appearance on ‘Stand Back’
 
 --
 
+[**"Stevie Nicks Recalls 'Amazing Relationship' With Prince After 'I Kind of Ripped off His Song'"**](https://www.billboard.com/articles/news/7348575/stevie-nicks-amazing-relationship-prince) by Associated Press on 27 April 2016
+
+> Stevie Nicks surprised the audience at Broadway's School of Rock with a riveting performance of "Rhiannon" after the cast took its curtain call.
+>
+> [...]
+>
+> Nicks also shared her memories of Prince while recording her 1980s hit, "Stand Back." She said the idea came to her while listening to "Little Red Corvette" while driving, and she was compelled to call him about it.
+> 
+> "I asked him if he would come over to Sunset Sound in Los Angeles. Never in a million years expecting that he would say yes or that he was even in Los Angeles, and he was there in like 20 minutes," Nicks said. "I didn't have to call and tell him that I kind of ripped off his song, but I did because I'm honest. So it turned into a really amazing relationship. Is my heart broken? Absolutely."
