@@ -2,7 +2,7 @@
 
 Basic details are available @ [Princevault](http://princevault.com/index.php?title=Album:_The_Undertaker).
 
--- 
+--
 
 According to a blogpost on **Funky4You** -- now only [available through the **Wayback Machine** of the **Internet Archive**](https://web.archive.org/web/20040122053822/http://www.funky4you.com/theundertaker.html)):
 
