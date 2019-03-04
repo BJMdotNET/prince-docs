@@ -1,4 +1,3 @@
-
 #The Undertaker (album / video)
 
 Basic details are available @ [Princevault](http://princevault.com/index.php?title=Album:_The_Undertaker).
