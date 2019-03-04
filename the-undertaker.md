@@ -19,3 +19,5 @@ According to a news item in ***The Prince Family*** (Vol. 2 Issue No. 01 - 8 Jan
 > *3 Chains O' Gold* is described as being the promised compilation home video containing videos for each song from the ***O(+>*** album with the exception of "Arrogance," "The Sacrifice of Victor" and the song "3 Chains O' Gold" itself. 
 >
 > The film *The Sarifice of Victor* primarily contains footage shot at the aftershow Prince performed September 7, 1993 at Bagley's Warehouse in London.
+
+There is also reporting on *The Undertaker* in Vol. 1 Issue No. 14 (30 October 1993) and Vol. 1 Issue No. 15 (13 November 1993).
