@@ -18,3 +18,4 @@
  - [***Dig If You Will the Picture: Funk, Sex, God and Genius in the Music of Prince***](https://us.macmillan.com/books/9781250128379) by Ben Greenman, 11 April 2017, Henry Holt & Co./Macmillan Publishers
  
  - [***Prince Live 1979-1980 : The First Tour***](http://www.funku.fr/en/2017/prince-live-1979-1980-the-first-tour-2/), 27 April 2017, Funk-U Magazine
+    > limited collector book features new and never-seen before pictures of Prince’s very first national tour shot in December 1st, 1979 at the Houston Palace during the Prince tour and February 24th, 1980 at the Sam Houston Coliseum supporting Rick James.
