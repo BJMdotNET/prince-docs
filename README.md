@@ -5,3 +5,5 @@
 * [*The Undertaker* (album / video)](./the-undertaker.html)
 * [*Minneapolis Star Tribune*](./minneapolis-star-tribune.html)
 * [Books](./books.html)
+* [Minnesota Spokesman-Recorder](./spokesman-recorder.html)
+
