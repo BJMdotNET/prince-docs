@@ -3,7 +3,7 @@
 
 ## Upcoming
 
- - [***On Time: A Princely Life In Funk***](https://www.dacapopress.com/titles/morris-day/on-time/9780306922206/) by Morris Day, with David Ritz, 5 November 2019, Da Capo Press
+ - [***On Time: A Princely Life In Funk***](https://www.dacapopress.com/titles/morris-day/on-time/9780306922206/) by **Morris Day**, with David Ritz, 5 November 2019, Da Capo Press
 
     > A memoir by Morris Day of The Time centering around his lifelong relationship and association with Prince.
 
@@ -15,7 +15,7 @@
 
 ## Already available
 
- - [***Dig If You Will the Picture: Funk, Sex, God and Genius in the Music of Prince***](https://us.macmillan.com/books/9781250128379) by Ben Greenman, 11 April 2017, Henry Holt & Co./Macmillan Publishers
+ - [***Dig If You Will the Picture: Funk, Sex, God and Genius in the Music of Prince***](https://us.macmillan.com/books/9781250128379) by **Ben Greenman**, 11 April 2017, Henry Holt & Co./Macmillan Publishers
  
     > he mines his encyclopedic knowledge of Prince’s music to tell both his story and the story of the paradigm-shifting ideas that he communicated to his millions of fans around the world. Greenman's take on Prince is the autobiography of a generation and its ideas.
  
