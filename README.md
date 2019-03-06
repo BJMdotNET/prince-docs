@@ -1,4 +1,6 @@
-## A backup of various Prince-related docs
+# A backup of various Prince-related docs
+
+## Collections
 
 * [Chaka Khan and Miles Davis](./chaka-khan-miles-davis.md)
 * [Stevie Nicks](./stevie-nicks.md)
