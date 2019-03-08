@@ -31,7 +31,18 @@ Suzanne Vega played the [Orpheum Theatre in Minneapolis](https://hennepintheatre
 
 --- 
 
-After Prince's death in 2016, [she shared the letter on Twitter](https://twitter.com/suzyv/status/724728422006554624). [According to *Billboard*](https://www.billboard.com/articles/news/7341897/suzanne-vega-prince-handwritten-letter-luka):
+After Prince's death in 2016, [she shared the letter on Twitter](https://twitter.com/suzyv/status/724728422006554624). 
+
+[According to *Billboard*](https://www.billboard.com/articles/news/7341897/suzanne-vega-prince-handwritten-letter-luka):
 
 > The letter calls her "Dearest Suzanne" and says, "Luka is the most compelling piece of music I've heard in a long time. There are no words 2 tell you all the things I feel when I hear it. I thank God 4 u." It also includes a nice doodle of a flower. 
 
+The tweet proved to be very popular and resulted in [this follow-up interview in *Billboard*](https://www.billboard.com/articles/news/7350157/suzanne-vega-prince-interview):
+
+> “Honestly, I wasn’t expecting it to go as viral as it did,” she told Billboard on Thursday night at the ASCAP Pop Music Awards. “I share a lot of things with my fans on Twitter and Facebook. I shared some texts I’d had with Lou Reed, as an example, so I just thought this could be something they might like, especially when I feel that we’re all grieving together. Somehow it reached many more people than that, so I’ve been appreciative of all that outpouring and love for Prince.” 
+> 
+> [...]
+> 
+> Are there any artists you never would have expected to be fans of your work?
+> 
+> As much a fan as they were of each other’s work, Vega told Billboard they never met. “But I’ve always felt that connection because of the letter and when I sang at the Grammys, he jumped to his feet after I sang the song and I knew he loved it,” she said. “I’ve seen him perform many times and loved him.”
