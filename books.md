@@ -29,6 +29,28 @@
     
 ---
 
+RAW:
+
+- Prince: The Life. The Genius. The Legend by James Court - October 10, 2018 (UK)
+
+- Prince and Little Weird Black Boy Gods by Scott Woods - October 25, 2018 (USA)
+
+- Prince: I Was There by Richard Houghton - October 25, 2018 (UK)
+
+- Prince and the Purple Rain Era Studio Sessions: 1983 and 1984 Expanded Edition by Duane Tudahl - November 15, 2018 (USA)
+
+- The Death of Prince Rogers Nelson: An Investigation by Jay Corn - November 20, 2018 (USA)
+
+- Prince In The Studio: The Stories Behind The Hits 1977-1994 by Jake Brown - December 7, 2018 (Japan)
+
+- Dans l'intimité de Prince by Steve Parke - December 11, 2018 (France)
+
+- Diamonds & Curlz: 29 Years Rolling with Rock Royalty Prince by Kim Berry - January 2019 (USA)
+
+- Prince & the 1980s Reagan Age: Race, Gender, Sexuality, Class, Nation, & Popular Music's Transnational Routes by Aaron Lefkovitz - January 30, 2019
+ 
+---
+
 You can find a more complete overview of the various books published over the years on [this Princevault page](http://www.princevault.com/index.php?title=Bibliography). 
 
 There is at leats one person in the world who owns every book ever published, and shares the covers on his Facebook page: [Michael "Princeologist" Robertson](https://www.facebook.com/worldpeacewithmichael).
