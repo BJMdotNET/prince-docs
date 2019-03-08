@@ -20,4 +20,9 @@
     > Moodymann @ Paisley Park
     >
     > This Detroit musician, whose productions run the gamut from house to funk to jazz to techno, can turn old songs (both classic and obscure tune) into something completely new and fresh while still paying tribute to the source material. Prince’s deep influence on Moodymann’s music is best exemplified by “U Can Dance If U Want 2,” which is essentially a rework of Prince’s “All The Critics Love U In New York.” And if Moodymann’s DJ set is anything like the one the Prince tribute he spun at the 7th St Entry on the first anniversary, which was full of B-sides, bootlegs, and rarities from his massive collection, even well-versed Prince fans will be hearing things for the first time. At the April 2017 show, the DJ showed off his extensive multimedia collection of rarities, mixing in bootleg versions of well-known songs such as “Let’s Work” and impossibly rare cuts with Paisley Park rehearsal footage and obscure recordings that he got from only God (and Prince) knows where. 
+
+---
+
+[Home](./)
+
     
