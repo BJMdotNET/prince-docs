@@ -19,7 +19,7 @@ Some excerpts from [***"Tales From Suzanne Vega"***](https://www.grammy.com/gram
 
 ---
 
-On her album [***Solitude Standing: Live at the Barbican***](http://www.kudosrecords.co.uk/release/CLDL419/Suzanne_Vega_Solitude_Standing_Live_2012.html), a live recording of one of Suzanne Vega's 2012 concerts for the 25th anniversary of ***Solitude Standing***, recorded on 16 October 2012 at the Barbican Centre in London, she shared this anecdote after playing "Luka" (my transcription):
+On [***Solitude Standing: Live at the Barbican***](http://www.kudosrecords.co.uk/release/CLDL419/Suzanne_Vega_Solitude_Standing_Live_2012.html), a live album of one of her 2012 concerts for the 25th anniversary of ***Solitude Standing***, recorded on 16 October 2012 at the Barbican Centre in London, she shared this anecdote after playing "Luka" (my transcription):
 
 > I certainly have a lot of memories connected with that song (= "Luka") and one of the memories I remember is that back then in 1987 right after the song had come out and was a hit at radio but it hadn't occurred to me yet to change the order of the setlist so I was still singing it fourth in the setlist.
 > 
