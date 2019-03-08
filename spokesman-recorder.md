@@ -8,5 +8,7 @@
     > [...]
     >
     > On-stage, Nevotion has acted in and directed several plays in Twin Cities theatre. For good measure, **he also danced behind Prince at Glam Slam** and with Shaquille O’Neal.
-    
+
 ---
+
+[Home](./)
