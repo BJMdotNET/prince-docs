@@ -31,6 +31,8 @@
 
 RAW:
 
+- Prince My Name Is by Marc Borbon - September 20, 2018 (France)
+
 - Prince: The Life. The Genius. The Legend by James Court - October 10, 2018 (UK)
 
 - Prince and Little Weird Black Boy Gods by Scott Woods - October 25, 2018 (USA)
