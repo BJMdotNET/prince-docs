@@ -1,7 +1,7 @@
 
 # Suzanne Vega
 
-Some excerpts from [***"Tales From Suzanne Vega"***](https://www.grammy.com/grammys/news/tales-suzanne-vega) by STEVE BALTIN on 2 December 2014:
+Some excerpts from [***"Tales From Suzanne Vega"***](https://www.grammy.com/grammys/news/tales-suzanne-vega) by Steve Baltin on 2 December 2014:
 
 > GRAMMY-winning singer/songwriter discusses the making of her new album, Tales From The Realm Of The Queen Of Pentacles, and being years ahead of "Game Of Thrones"
 > 
@@ -46,3 +46,8 @@ The tweet proved to be very popular and resulted in [this follow-up interview in
 > Are there any artists you never would have expected to be fans of your work?
 > 
 > As much a fan as they were of each other’s work, Vega told Billboard they never met. “But I’ve always felt that connection because of the letter and when I sang at the Grammys, he jumped to his feet after I sang the song and I knew he loved it,” she said. “I’ve seen him perform many times and loved him.”
+
+---
+
+[Home](./)
+
