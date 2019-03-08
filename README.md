@@ -5,6 +5,7 @@
 * [Chaka Khan and Miles Davis](./chaka-khan-miles-davis.md)
 * [Stevie Nicks](./stevie-nicks.md)
 * [Suzanne Vega](./suzanne-vega.md)
+* [Kate Bush](./kate-bush.md)
 * [*The Undertaker* (album / video)](./the-undertaker.md)
 
 ## Lists
