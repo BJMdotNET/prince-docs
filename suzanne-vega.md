@@ -29,3 +29,9 @@ On her album [***Solitude Standing: Live at the Barbican***](http://www.kudosrec
 
 Suzanne Vega played the [Orpheum Theatre in Minneapolis](https://hennepintheatretrust.org/theatres/orpheum-theatre/) on 15 July 1987.
 
+--- 
+
+After Prince's death in 2016, [she shared the letter on Twitter](https://twitter.com/suzyv/status/724728422006554624). [According to *Billboard*](https://www.billboard.com/articles/news/7341897/suzanne-vega-prince-handwritten-letter-luka):
+
+> The letter calls her "Dearest Suzanne" and says, "Luka is the most compelling piece of music I've heard in a long time. There are no words 2 tell you all the things I feel when I hear it. I thank God 4 u." It also includes a nice doodle of a flower. 
+
