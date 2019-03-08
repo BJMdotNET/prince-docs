@@ -21,3 +21,8 @@ Links to articles in Prince's hometown paper:
       > Fashion and decor experts say black and teal are a good combination, so there are ways in which Weezer's "Black Album" matches the "Teal Album," their barely-a-month-ago release of largely 1980s cover versions motivated by the surprising success of their take on Toto's "Africa."
       > 
       > "Black Album," for example, also harkens back to the '80s "me decade" with some self-referential moments, makes generous use of kitsch and includes "The Prince Who Wanted Everything," a song that alludes to paisley and a red corvette but crassly ends up making Prince come across like a second-rate Liberace.
+
+---
+
+[Home](./)
+
