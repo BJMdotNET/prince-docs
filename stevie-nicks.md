@@ -1,11 +1,5 @@
 # Stevie Nicks 
 
-[![Stevie Nicks - Stand Back (Official Video)](https://img.youtube.com/vi/bwdDVZsz2es/0.jpg)](https://www.youtube.com/watch?v=bwdDVZsz2es)
-
-https://www.youtube.com/watch?v=bwdDVZsz2es
-
---
-
 From [**"Stevie Nicks on Tom Petty, Drag Queens, ‘Game of Thrones’ and Missing Prince: Wisdom from the first woman to make it into the Rock and Roll Hall of Fame twice"**](https://www.rollingstone.com/music/music-features/stevie-nicks-interview-tom-petty-drag-queens-game-of-thrones-prince-801112/) by **Rob Sheffield** for ***Rolling Stone*** on February 28, 2019:
 
 > Stevie Nicks has the only kind of BDE that matters: Bella Donna Energy. The Fleetwood Mac gold dust woman is adding yet another sequin to her top hat by going into the Rock & Roll Hall of Fame as a solo artist, years after she got enshrined with the Mac. She’s the first woman inducted twice — as she puts it, “at the ripe and totally young age of 70.” She’s also hitting the road with Fleetwood Mac for the 2019 leg of their world tour, in their surprising new incarnation after a sudden split with Lindsey Buckingham.
@@ -32,7 +26,7 @@ From [**"Stevie Nicks on Tom Petty, Drag Queens, ‘Game of Thrones’ and Missi
 
 (Also available [on Yahoo](https://www.yahoo.com/entertainment/stevie-nicks-tom-petty-drag-125025298.html))
 
---
+---
 
 From [**"Stevie Nicks Recalls Prince’s Surprise Appearance on ‘Stand Back’"**](http://ultimateclassicrock.com/stevie-nicks-stand-back-prince/) by **Martin Kielty** for **Ultimate Classic Rock** on 18 November 2018
 
@@ -49,7 +43,7 @@ From [**"Stevie Nicks Recalls Prince’s Surprise Appearance on ‘Stand Back’
 > 
 > On hearing the track, Prince went over to a keyboard and began playing new parts, to Nicks’ astonishment. “That was the coolest thing we’ve ever heard,” she remembered thinking. She added, “Takes him an hour; he gives me a little ‘I don’t really know you’ hug, and, uh, he’s gone. Like a little spirit.” The results appeared on her second solo album, The Wild Heart.
 
---
+---
 
 [**"Stevie Nicks Reveals How Prince Inspired 'Stand Back'"**](https://wmgk.com/2018/05/25/stevie-nicks-reveals-prince-inspired-stand-back-2/) on May 25, 2018
 
@@ -73,7 +67,7 @@ From [**"Stevie Nicks Recalls Prince’s Surprise Appearance on ‘Stand Back’
 > 
 > Ever since their time in the recording studio, they kept in touch. Prince encouraged her to quit doing drugs and she eventually did.  Since his passing, whenever Stevie gets nervous before going on stage, she summons Prince and asks him to walk with her onto the stage.  She feels his presence and it gives her the confidence she needs to perform.
 
---
+---
 
 [**"Stevie Nicks Recalls 'Amazing Relationship' With Prince After 'I Kind of Ripped off His Song'"**](https://www.billboard.com/articles/news/7348575/stevie-nicks-amazing-relationship-prince) by Associated Press on 27 April 2016
 
@@ -84,6 +78,12 @@ From [**"Stevie Nicks Recalls Prince’s Surprise Appearance on ‘Stand Back’
 > Nicks also shared her memories of Prince while recording her 1980s hit, "Stand Back." She said the idea came to her while listening to "Little Red Corvette" while driving, and she was compelled to call him about it.
 > 
 > "I asked him if he would come over to Sunset Sound in Los Angeles. Never in a million years expecting that he would say yes or that he was even in Los Angeles, and he was there in like 20 minutes," Nicks said. "I didn't have to call and tell him that I kind of ripped off his song, but I did because I'm honest. So it turned into a really amazing relationship. Is my heart broken? Absolutely."
+
+---
+
+Watch "Stand Back" on YouTube:
+
+[![Stevie Nicks - Stand Back (Official Video)](https://img.youtube.com/vi/bwdDVZsz2es/0.jpg)](https://www.youtube.com/watch?v=bwdDVZsz2es)
 
 ---
 
