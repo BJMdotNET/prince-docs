@@ -1,7 +1,11 @@
 
 # City Pages
 
- - [***"What happened? A timeline of notable and sometimes nutty Minnesota music news for 2018."***](http://www.citypages.com/music/what-happened-a-timeline-of-notable-and-sometimes-nutty-minnesota-music-news-for-2018/502511921) by Keith Harris on 12 December 2018
+ - [**"Let's make fun of Weezer's song about Prince in the week's Go Slow No"**](http://www.citypages.com/music/lets-make-fun-of-weezers-song-about-prince-in-the-weeks-go-slow-no/506877321) March 8, 2019 by Keith Harris in Music
+ 
+    > As much as anyone, Rivers Cuomo established the contours of the modern-rock hit as we know it, and as punishment he’s doomed to dopily haunt its commercial confines forever. Despite his aptitude for tune, Cuomo’s lyrics have always stumbled, and their gawkiness only simulates a vulnerable charm if you first encounter them at a particularly susceptible moment. So maybe schtick-rock throwaways like “Zombie Bastards,” “Can’t Knock the Hustle,” and “The Prince Who Wanted Everything” (somebody’s surely rolling in his Paisley-Park-shaped urn) aren’t exactly unworthy of the auteur who once sang “Flip on the telly/Wrestle with Jimmy” after all. Maybe you’ve just outgrown him.
+
+ - [**"What happened? A timeline of notable and sometimes nutty Minnesota music news for 2018."**](http://www.citypages.com/music/what-happened-a-timeline-of-notable-and-sometimes-nutty-minnesota-music-news-for-2018/502511921) by Keith Harris on 12 December 2018
 
     > January
     >
