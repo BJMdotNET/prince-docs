@@ -15,9 +15,9 @@
     
     Etc. etc. etc.
     
- - ["Prince estate goes after Cloud guitar designer"](http://www.citypages.com/music/prince-estate-goes-after-cloud-guitar-designer/502027422) Thursday, December 6, 2018 by Keith Harris 
+ - [**"Prince estate goes after Cloud guitar designer"**](http://www.citypages.com/music/prince-estate-goes-after-cloud-guitar-designer/502027422) Thursday, December 6, 2018 by Keith Harris 
  
- - ["The weekend's best concerts: Nov. 30-Dec. 2"](http://www.citypages.com/music/the-weekends-best-concerts-nov-30-dec-2/501601302)
+ - [**"The weekend's best concerts: Nov. 30-Dec. 2"**](http://www.citypages.com/music/the-weekends-best-concerts-nov-30-dec-2/501601302)
  
     > Saturday 12.1
     >
