@@ -6,6 +6,7 @@
 * [Stevie Nicks](./stevie-nicks.md)
 * [Suzanne Vega](./suzanne-vega.md)
 * [Kate Bush](./kate-bush.md)
+* [Angelique Kidjo](./angelique-kidjo.md)
 * [*The Undertaker* (album / video)](./the-undertaker.md)
 
 ## Lists
