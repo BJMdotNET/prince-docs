@@ -2,6 +2,14 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Paisley Park rocks again with four of Prince's female protégées in concert"**](http://www.startribune.com/paisley-park-rocks-again-with-four-of-prince-s-female-protegees-in-concert/507037812/) By Jon Bream  MARCH 12, 2019
+ 
+    > Prince never presented a concert featuring all female-fronted bands, but he probably would have approved of the #WomenWhoRock at Paisley Park event on Monday night. It was an invigorating, enlightening and entertaining five-hour testament to women whose music he nurtured and championed.
+    
+ - [**"Chanhassen City Council approves housing and park plan on former Prince property"**](http://www.startribune.com/chanhassen-council-approves-housing-and-park-plan-on-former-prince-property/507037042/), By David Chanen and Katy Read, MARCH 12, 2019
+ 
+    > A long-running dispute over development of land once owned by Prince appears to be settled. The Chanhassen City Council voted 5-0 Monday for a plan that includes 169 lots for market-rate and luxury houses on the 188-acre site, between Galpin Boulevard and the shore of lakes Ann and Lucy.
+
  - [**"Chanhassen residents express differing opinions on plans to develop property once owned by Prince"**](http://www.startribune.com/no-consensus-on-what-to-do-with-sprawling-188-acres-in-chanhassen-once-owned-by-prince/506771122/) by Katy Read, on 6 March 2019:
  
     > An overflow crowd of about 150 jammed a hearing Tuesday in Chanhassen to discuss what to do with a large tract of land once owned by Prince, but no clear consensus emerged among those who spoke.
