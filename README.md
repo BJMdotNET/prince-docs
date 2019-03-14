@@ -8,6 +8,7 @@
 * [Kate Bush](./kate-bush.md)
 * [Angelique Kidjo](./angelique-kidjo.md)
 * [Susannah Melvoin](./susannah-melvoin.md)
+* [Weezer](./weezer.md)
 
 ## Collections (projects)
 
