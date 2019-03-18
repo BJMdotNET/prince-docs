@@ -2,6 +2,12 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Colbert's bandleader Jon Batiste honors Prince in final 'Live From Here' St. Paul show of the season"**](http://www.startribune.com/colbert-s-bandleader-jon-batiste-honors-prince-in-live-from-here-s-last-st-paul-show-of-the-season/507271362/) By Neal Justin March 18, 2019
+ 
+    > "Live From Here" may be drifting away from its Minnesota roots, but the national radio show found all sorts of ways to pay tribute to the state with its last Twin Cities show of the season and its first without host Chris Thile.
+    > 
+    > Guest host Jon Batiste, best known as the bandleader for CBS's "Late Show With Stephen Colbert," talked about how he spent time in college obsessed with Prince's "Dirty Mind" album before steaming up the Fitzgerald Theatre with a sulty, jazz version of "How Come U Don't Call Me Anymore."
+
  - [**"Paisley Park rocks again with four of Prince's female protégées in concert"**](http://www.startribune.com/paisley-park-rocks-again-with-four-of-prince-s-female-protegees-in-concert/507037812/) By Jon Bream  MARCH 12, 2019
  
     > Prince never presented a concert featuring all female-fronted bands, but he probably would have approved of the #WomenWhoRock at Paisley Park event on Monday night. It was an invigorating, enlightening and entertaining five-hour testament to women whose music he nurtured and championed.
