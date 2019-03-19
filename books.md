@@ -11,6 +11,10 @@
 
     > A collection of the very first, the very last, and the very best interviews conducted with Prince over his nearly 40 year career.
     
+    - Review: [**"Will we ever really, truly know Prince?"**](https://www.washingtonpost.com/entertainment/books/will-we-ever-really-truly-know-prince/2019/03/18/4ae1f464-49a0-11e9-9663-00ac73f49662_story.html) by Chris Richards (pop music critic), 19 March 2019
+    
+       > For those hoping to not-know him a little better, there’s “Prince: The Last Interview and Other Conversations,” a new compilation of profiles and Q&As previously published in a delightfully disparate array of outlets, including Minnesota Daily, Rolling Stone, Vegetarian Times, Yahoo! Internet Life and Prince’s high school newspaper.
+    
  - [***My Name Is Prince***](https://www.harpercollins.com/9780062939234/my-name-is-prince/) by **Randee St. Nicholas**, 15 October 2019, Amistad/HarperCollins Publishers.
  
     > An intimately photographed and elegantly designed tribute to the artist known as Prince from the celebrated photographer who collaborated with him for a quarter of a century.
