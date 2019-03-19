@@ -7,6 +7,8 @@
 
     > A memoir by Morris Day of The Time centering around his lifelong relationship and association with Prince.
 
+---
+
  - [***Prince: The Last Interview***](https://www.mhpbooks.com/books/prince-the-last-interview/) by Prince, introduction by Hanif Abdurraqib, 12 March 2019, Melville House Books 
 
     > A collection of the very first, the very last, and the very best interviews conducted with Prince over his nearly 40 year career.
@@ -14,6 +16,8 @@
     - Review: [**"Will we ever really, truly know Prince?"**](https://www.washingtonpost.com/entertainment/books/will-we-ever-really-truly-know-prince/2019/03/18/4ae1f464-49a0-11e9-9663-00ac73f49662_story.html) by Chris Richards (pop music critic), 19 March 2019
     
        > For those hoping to not-know him a little better, there’s “Prince: The Last Interview and Other Conversations,” a new compilation of profiles and Q&As previously published in a delightfully disparate array of outlets, including Minnesota Daily, Rolling Stone, Vegetarian Times, Yahoo! Internet Life and Prince’s high school newspaper.
+
+---
     
  - [***My Name Is Prince***](https://www.harpercollins.com/9780062939234/my-name-is-prince/) by **Randee St. Nicholas**, 15 October 2019, Amistad/HarperCollins Publishers.
  
@@ -26,6 +30,8 @@
  - [***Dig If You Will the Picture: Funk, Sex, God and Genius in the Music of Prince***](https://us.macmillan.com/books/9781250128379) by **Ben Greenman**, 11 April 2017, Henry Holt & Co./Macmillan Publishers
  
     > he mines his encyclopedic knowledge of Prince’s music to tell both his story and the story of the paradigm-shifting ideas that he communicated to his millions of fans around the world. Greenman's take on Prince is the autobiography of a generation and its ideas.
+
+---
  
  - [***Prince Live 1979-1980 : The First Tour***](http://www.funku.fr/en/2017/prince-live-1979-1980-the-first-tour-2/), 27 April 2017, Funk-U Magazine
  
