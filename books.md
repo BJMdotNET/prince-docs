@@ -8,6 +8,14 @@
     > A memoir by Morris Day of The Time centering around his lifelong relationship and association with Prince.
 
 ---
+    
+ - [***My Name Is Prince***](https://www.harpercollins.com/9780062939234/my-name-is-prince/) by **Randee St. Nicholas**, 15 October 2019, Amistad/HarperCollins Publishers.
+ 
+    > An intimately photographed and elegantly designed tribute to the artist known as Prince from the celebrated photographer who collaborated with him for a quarter of a century.
+
+---
+
+## Already available
 
  - [***Prince: The Last Interview***](https://www.mhpbooks.com/books/prince-the-last-interview/) by Prince, introduction by Hanif Abdurraqib, 12 March 2019, Melville House Books 
 
@@ -18,14 +26,6 @@
        > For those hoping to not-know him a little better, there’s “Prince: The Last Interview and Other Conversations,” a new compilation of profiles and Q&As previously published in a delightfully disparate array of outlets, including Minnesota Daily, Rolling Stone, Vegetarian Times, Yahoo! Internet Life and Prince’s high school newspaper.
 
 ---
-    
- - [***My Name Is Prince***](https://www.harpercollins.com/9780062939234/my-name-is-prince/) by **Randee St. Nicholas**, 15 October 2019, Amistad/HarperCollins Publishers.
- 
-    > An intimately photographed and elegantly designed tribute to the artist known as Prince from the celebrated photographer who collaborated with him for a quarter of a century.
-
----
-
-## Already available
 
  - [***Dig If You Will the Picture: Funk, Sex, God and Genius in the Music of Prince***](https://us.macmillan.com/books/9781250128379) by **Ben Greenman**, 11 April 2017, Henry Holt & Co./Macmillan Publishers
  
