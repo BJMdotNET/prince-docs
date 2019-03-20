@@ -12,6 +12,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 * [Susannah Melvoin](./susannah-melvoin.md)
 * [Weezer](./weezer.md)
 * [Gary Clark, Jr.](./gary-clark-jr.md)
+* [Kendrick Lamar](./kendrick-lamar.md)
 
 -----
 
