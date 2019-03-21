@@ -2,6 +2,14 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Review: Ex-Prince guitarist Donna Grantis explores fusion"**](http://www.startribune.com/review-ex-prince-guitarist-donna-grantis-explores-fusion/507416972/) By PABLO GORONDI (Associated Press) - MARCH 20, 2019 
+
+    > Donna Grantis, "Diamonds & Dynamite" (eOne)
+    >
+    > [...]
+    >
+    > Recorded live-to-tape in just two days, a pace similar to that of many great jazz albums, "Diamonds & Dynamite" is an experimentally adventurous set, which contains ample evidence why Prince held Grantis in such high regard.
+
  - [**"Urn with Prince's ashes still in the building, 'just not on display' at Paisley Park"**](http://www.startribune.com/urn-with-prince-s-ashes-still-in-the-building-just-not-on-display-at-paisley-park/507434942/) By Jon Bream - MARCH 20, 2019
  
    > His ashes are no longer on display for tours at Paisley Park museum. And fans are disappointed.
