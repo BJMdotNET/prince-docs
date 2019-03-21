@@ -2,6 +2,10 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Urn with Prince's ashes still in the building, 'just not on display' at Paisley Park"**](http://www.startribune.com/urn-with-prince-s-ashes-still-in-the-building-just-not-on-display-at-paisley-park/507434942/) By Jon Bream - MARCH 20, 2019
+ 
+   > His ashes are no longer on display for tours at Paisley Park museum. And fans are disappointed.
+
  - [**"Colbert's bandleader Jon Batiste honors Prince in final 'Live From Here' St. Paul show of the season"**](http://www.startribune.com/colbert-s-bandleader-jon-batiste-honors-prince-in-live-from-here-s-last-st-paul-show-of-the-season/507271362/) By Neal Justin March 18, 2019
  
     > "Live From Here" may be drifting away from its Minnesota roots, but the national radio show found all sorts of ways to pay tribute to the state with its last Twin Cities show of the season and its first without host Chris Thile.
