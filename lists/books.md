@@ -71,4 +71,4 @@ There is at leats one person in the world who owns every book ever published, an
 
 ---
 
-[Home](./)
+[Home](../)

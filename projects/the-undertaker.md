@@ -28,5 +28,5 @@ There is also reporting on *The Undertaker* in Vol. 1 Issue No. 14 (30 October 1
 
 ---
 
-[Home](./)
+[Home](../)
 

@@ -87,5 +87,5 @@ Watch "Stand Back" on YouTube:
 
 ---
 
-[Home](./)
+[Home](../)
 

@@ -49,5 +49,5 @@ The tweet proved to be very popular and resulted in [this follow-up interview in
 
 ---
 
-[Home](./)
+[Home](../)
 

@@ -22,5 +22,5 @@ From [***The Last Miles: The Music of Miles Davis, 1980-1991***](http://www.thel
 
 ---
 
-[Home](./)
+[Home](../)
 
