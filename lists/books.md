@@ -19,7 +19,15 @@
  
     - [**"Prince's Hairstylist of 29 Years (Kim Berry) to Release Memoir on April 16"**](https://eurweb.com/2019/03/princes-hairstylist-of-29-years-kim-berry-to-release-memoir-on-april-16/)
     
-       > The elite LA based celebrity hairstylist is excited to add “Author” to her long list of accomplishments. Taking a page from Prince’s playbook, the new memoir was conceptualized, written and self-published by Berry (KimBOnSet Publishing). Through fabulously told personal accounts of tour life experiences and other shared moments with Prince, Berry brings this labor of love to the masses. A captivating, heartfelt recollection of her journey alongside one of music’s most prolific artists. Berry’s desire for the book is to serve as a healing agent for peace to all who have never truly received closure after his death, nearly three years later.    
+       > The elite LA based celebrity hairstylist is excited to add “Author” to her long list of accomplishments. Taking a page from Prince’s playbook, the new memoir was conceptualized, written and self-published by Berry (KimBOnSet Publishing). Through fabulously told personal accounts of tour life experiences and other shared moments with Prince, Berry brings this labor of love to the masses. A captivating, heartfelt recollection of her journey alongside one of music’s most prolific artists. Berry’s desire for the book is to serve as a healing agent for peace to all who have never truly received closure after his death, nearly three years later.
+    
+---
+
+ - [***Prince & the 1980s Reagan Age: Race, Gender, Sexuality, Class, Nation, & Popular Music's Transnational Routes***](_URL_) by **Aaron Lefkovitz** - 30 January 2019 - [Peter Lang Inc., International Academic Publishers](https://www.peterlang.com/)
+
+---
+
+ - ***Prince: I Was There*** by **Richard Houghton** - 22 August 2019 (UK)
 
 ---
 
@@ -46,28 +54,34 @@
  - [***Prince Live 1979-1980 : The First Tour***](http://www.funku.fr/en/2017/prince-live-1979-1980-the-first-tour-2/), 27 April 2017, Funk-U Magazine
  
     > limited collector book features new and never-seen before pictures of Prince’s very first national tour shot in December 1st, 1979 at the Houston Palace during the Prince tour and February 24th, 1980 at the Sam Houston Coliseum supporting Rick James.
-    
+
 ---
 
-RAW:
+ - [***Prince and the Purple Rain Era Studio Sessions: 1983 and 1984 Expanded Edition***](https://rowman.com/ISBN/9781538114629/Prince-and-the-Purple-Rain-Era-Studio-Sessions-1983-and-1984-Expanded-Edition) by **Duane Tudahl** - 15 November 2018 (USA)
 
-- Prince My Name Is by Marc Borbon - September 20, 2018 (France)
+---
 
-- Prince: The Life. The Genius. The Legend by James Court - October 10, 2018 (UK)
+ - [***Prince My Name Is***](http://www.camionblanc.com/detail-livre-prince-my-name-is-1206.php) by **Marc Borbon** - 29 September 2018 (France)
 
-- Prince and Little Weird Black Boy Gods by Scott Woods - October 25, 2018 (USA)
+---
 
-- Prince: I Was There by Richard Houghton - October 25, 2018 (UK)
+ - [***Prince and Little Weird Black Boy Gods***](https://brickcavemedia.com/product/prince-and-little-weird-black-boy-gods-special-edition-paperback/) by **Scott Woods** - 25 October 2018 (USA)
 
-- Prince and the Purple Rain Era Studio Sessions: 1983 and 1984 Expanded Edition by Duane Tudahl - November 15, 2018 (USA)
+---
 
-- The Death of Prince Rogers Nelson: An Investigation by Jay Corn - November 20, 2018 (USA)
+ - [***Prince: The Life. The Genius. The Legend***](http://newhavenpublishingltd.com/?page_id=1997) by **James Court** - 10 October 2018 (UK)
 
-- Prince In The Studio: The Stories Behind The Hits 1977-1994 by Jake Brown - December 7, 2018 (Japan)
+---
 
-- Dans l'intimité de Prince by Steve Parke - December 11, 2018 (France)
+ - [***The Death of Prince Rogers Nelson: An Investigation***](https://thedeathofprincerogersnelson.com/) by **Jay Corn** - 20 November 2018 (USA)
 
-- Prince & the 1980s Reagan Age: Race, Gender, Sexuality, Class, Nation, & Popular Music's Transnational Routes by Aaron Lefkovitz - January 30, 2019
+---
+
+ - ***Prince In The Studio: The Stories Behind The Hits 1977-1994*** by **Jake Brown** - 7 December 2018 (Japan) - Music Square Media
+
+---
+
+ - ***Dans l'intimité de Prince*** by **Steve Parke** - 11 December 2018 (France) - [Les éditions de L'imprévu](http://www.leseditionsdelimprevu.fr/)
  
 ---
 
