@@ -32,7 +32,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
 -----
 
-## Records deals
+## Recording deals
 
  - [Warner Bros. Records](./warner-bros.md)
  - [Sony Music Entertainment/Legacy Recordings](./legacy-recordings.md)
