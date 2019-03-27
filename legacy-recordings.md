@@ -6,10 +6,14 @@
     > The Prince Estate in partnership with Legacy Recordings, a division of Sony Music Entertainment, continue efforts to reunite the artist’s music on all digital services, turning attention to unavailable music videos from the 1995-2010 era. Starting on November 2 and coming in weekly batches by album, the music videos will be made available on all streaming video services.
     
     - Also [here](https://www.sonymusic.com/legacy/the-prince-estate-in-partnership-with-legacy-recordings-announce-first-wave-of-physical-titles-cd-vinyl-in-definitive-catalog-rerelease-project/).
+
+-----
    
  - [**"Legacy Recordings and The Prince Estate Launch First Wave of Prince Catalog Digital Releases Today"**](https://www.legacyrecordings.com/2018/08/17/legacy-recordings-and-the-prince-estate-launch-first-wave-of-prince-catalog-digital-releases-today/) - August 17, 2018
  
     > The first wave of Prince catalog titles to be released through an exclusive agreement struck in June between SME and The Prince Estate focuses on 1995-2010, a crucial epoch in Prince history. 23 highly-collectible Prince catalog titles (many of them hard-to-find or out-of-print) and Prince Anthology: 1995-2010 (a newly-curated anthology of 37 essential tracks from the era) are now available across all major streaming services and digital service providers.
+
+-----
     
  - [**"Sony Music Entertainment/Legacy Recordings Sign Exclusive Distribution Deal with Prince Estate Covering Titles from 1978-2015"**](https://www.legacyrecordings.com/2018/06/27/sony-music-entertainment-legacy-recordings-sign-exclusive-distribution-deal-with-prince-estate-covering-35-essential-catalog-titles-from-1978-2015/) - June 27, 2018
  
