@@ -8,18 +8,12 @@
     - Also [here](https://www.sonymusic.com/legacy/the-prince-estate-in-partnership-with-legacy-recordings-announce-first-wave-of-physical-titles-cd-vinyl-in-definitive-catalog-rerelease-project/).
 
 -----
-
- - [**"Legacy Recordings and The Prince Estate Launch First Wave of Prince Catalog Digital Releases Today"**](https://www.prnewswire.com/news-releases/legacy-recordings-and-the-prince-estate-launch-first-wave-of-prince-catalog-digital-releases-today-300698544.html) - PRNewswire - Aug 17, 2018
-    
-    > Legacy Recordings, a division of Sony Music Entertainment, is launching its first round of Prince catalog digital releases today, August 17.
-    >
-    > The first wave of Prince catalog titles to be released through an exclusive agreement struck in June between SME and The Prince Estate focuses on 1995-2010, a crucial epoch in Prince history. 23 highly-collectible Prince catalog titles (many of them hard-to-find or out-of-print) and ***Prince Anthology: 1995-2010*** (a newly-curated anthology of 37 essential tracks from the era) are now available across all major streaming services and digital service providers.
-
------
    
  - [**"Legacy Recordings and The Prince Estate Launch First Wave of Prince Catalog Digital Releases Today"**](https://www.legacyrecordings.com/2018/08/17/legacy-recordings-and-the-prince-estate-launch-first-wave-of-prince-catalog-digital-releases-today/) - August 17, 2018
  
     > The first wave of Prince catalog titles to be released through an exclusive agreement struck in June between SME and The Prince Estate focuses on 1995-2010, a crucial epoch in Prince history. 23 highly-collectible Prince catalog titles (many of them hard-to-find or out-of-print) and ***Prince Anthology: 1995-2010*** (a newly-curated anthology of 37 essential tracks from the era) are now available across all major streaming services and digital service providers.
+    
+    - [Press release @ PRNewswire](https://www.prnewswire.com/news-releases/legacy-recordings-and-the-prince-estate-launch-first-wave-of-prince-catalog-digital-releases-today-300698544.html)
     
     - [Press release @ PRNewswire](https://www.prnewswire.com/news-releases/the-prince-estate-in-partnership-with-legacy-recordings-announce-first-wave-of-physical-titles-cdvinyl-in-definitive-catalog-rerelease-project-300760870.html)
 
