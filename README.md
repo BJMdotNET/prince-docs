@@ -29,3 +29,6 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Minneapolis Star Tribune](./lists/minneapolis-star-tribune.md)
  - [Minnesota Spokesman-Recorder](./lists/spokesman-recorder.md)
  - [City Pages](./lists/city-pages.md)
+
+
+ - [Sony Music Entertainment/Legacy Recordings](./legacy-recordings.md)
