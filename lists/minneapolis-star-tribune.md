@@ -2,6 +2,10 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Former Prince guitarist Donna Grantis celebrates new jazz-rock album at the Dakota"**](http://www.startribune.com/former-prince-guitarist-donna-grantis-celebrates-new-jazz-rock-album-at-the-dakota/507678332/) by Jon Bream - MARCH 26, 2019
+ 
+    > Grantis’ own combo delivers new millennium instrumental jazz-rock fusion, sort of like Jeff Beck meets a postmodern Mahavishnu Orchestra. The ensemble travels down eight different lanes of the fusion superhighway in Hendrixian crosstown traffic, all with an exotic East Indian undertone thanks to tabla player Suphala.
+
  - [**"Review: Ex-Prince guitarist Donna Grantis explores fusion"**](http://www.startribune.com/review-ex-prince-guitarist-donna-grantis-explores-fusion/507416972/) By PABLO GORONDI (Associated Press) - MARCH 20, 2019 
 
     > Donna Grantis, "Diamonds & Dynamite" (eOne)
