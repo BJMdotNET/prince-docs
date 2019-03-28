@@ -54,4 +54,4 @@ Links to articles in Prince's hometown paper:
 
 -----
 
-[Home](../)
+[Home](./)
