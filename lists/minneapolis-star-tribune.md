@@ -2,9 +2,7 @@
 
 Links to articles in Prince's hometown paper, grouped by month:
 
-<ul><li>2019: 
-[March](./minneapolis-star-tribune-2019-03.md) | [February](./minneapolis-star-tribune-2019-02.md)
-</li></ul>
+ - 2019: [March](./minneapolis-star-tribune-2019-03.md) | [February](./minneapolis-star-tribune-2019-02.md)
 
 -----
 
