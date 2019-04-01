@@ -62,6 +62,10 @@ Links to articles in Prince's hometown paper:
 
  - [**"Foundation of Prince's second wife to honor him at gala"**](http://www.startribune.com/foundation-of-prince-s-second-wife-to-honor-him-at-gala/506568702/) by Leanne Italie (Associated Press) - 1 March 2019
 
+    > Andra Day, Dave Stewart of the Eurythmics and Philip Bailey and Verdine White of Earth, Wind & Fire will perform during a fundraising gala honoring Prince to benefit the foundation of his second wife, Manuela Testolini.
+    > 
+    > The evening Sunday to raise money for In a Perfect World will be hosted by Anthony Anderson. Bobby Brown, Beyonce's mother, Tina Knowles, Chaka Khan and Prince's "Purple Rain" co-star Apollonia Kotero were scheduled to attend.
+
 -----
 
 [Home](./)
