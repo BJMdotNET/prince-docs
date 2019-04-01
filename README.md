@@ -13,6 +13,8 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Weezer](./collaborations/weezer.md)
  - [Gary Clark, Jr.](./collaborations/gary-clark-jr.md)
  - [Kendrick Lamar](./collaborations/kendrick-lamar.md)
+ - [The Three O'Clock](./collaborations/the-three-o-clock.md)
+ - [The Bangles](./collaborations/the-bangles.md)
 
 -----
 
