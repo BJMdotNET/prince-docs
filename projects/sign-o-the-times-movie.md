@@ -3,7 +3,7 @@
 
 From **"Times Lapse"** by **Calum Waddell** in the News pages of the [April 2019 issue](https://recordcollectormag.com/issue-detail/491) of UK magazine [***Record Collector***](https://recordcollectormag.com/) (issue no. 491), page 13. 
 
-> Unearthed Prince songs and new feature-length documentary on the late artist's Sign 0' The Times concert film.
+> Unearthed Prince songs and new feature-length documentary on the late artist's *Sign O' the Times* concert film.
 > 
 > [...]
 > 
@@ -11,4 +11,4 @@ From **"Times Lapse"** by **Calum Waddell** in the News pages of the [April 2019
 > 
 > "When you see *Sign O' the Times*, you see some expert live musicianship," Rogers says. "Prince made concept albums and, with *Sign O' the Times*, he wanted to make a concept film -- but not many people know that the project was also a document of where his life was at that moment, with a failed engagement to Susan Moonsie, a change in his band and a pensiveness about the future. Now that story will also be told."
 
-The Blu-ray will be released by Turbine Media Group in late Summer 2019.
+The Blu-ray will be released by [Turbine Media Group](https://www.turbine.de/) in late Summer 2019 ([on Facebook](https://www.facebook.com/turbinemedien/)).

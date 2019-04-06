@@ -2,6 +2,16 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Herb Ritts photos of Bowie, Madonna, more to be exhibited"**](http://www.startribune.com/herb-ritts-photos-of-bowie-madonna-more-to-be-exhibited/507913581/) by Associated Press - 31 March 2019
+
+    > The work of famed celebrity and fashion photographer Herb Ritts is going on display at an upstate New York museum.
+    > 
+    > "Herb Ritts: The Rock Portraits" highlights the six new exhibits opening Monday at the Fenimore Art Museum in Cooperstown.
+    > 
+    > [...]
+    > 
+    > The Fenimore exhibit, organized by the Rock & Roll Hall of Fame in Cleveland, includes Ritts photographs of such music icons as David Bowie, Tina Turner, Bruce Springsteen, Paul McCartney, Bob Dylan, Prince and Madonna.
+
  - [**"Former Prince guitarist Donna Grantis celebrates new jazz-rock album at the Dakota"**](http://www.startribune.com/former-prince-guitarist-donna-grantis-celebrates-new-jazz-rock-album-at-the-dakota/507678332/) by Jon Bream - 26 March 2019
 
     > Grantis’ own combo delivers new millennium instrumental jazz-rock fusion, sort of like Jeff Beck meets a postmodern Mahavishnu Orchestra. The ensemble travels down eight different lanes of the fusion superhighway in Hendrixian crosstown traffic, all with an exotic East Indian undertone thanks to tabla player Suphala.
@@ -51,6 +61,10 @@ Links to articles in Prince's hometown paper:
     > "Black Album," for example, also harkens back to the '80s "me decade" with some self-referential moments, makes generous use of kitsch and includes "The Prince Who Wanted Everything," a song that alludes to paisley and a red corvette but crassly ends up making Prince come across like a second-rate Liberace.
 
  - [**"Foundation of Prince's second wife to honor him at gala"**](http://www.startribune.com/foundation-of-prince-s-second-wife-to-honor-him-at-gala/506568702/) by Leanne Italie (Associated Press) - 1 March 2019
+
+    > Andra Day, Dave Stewart of the Eurythmics and Philip Bailey and Verdine White of Earth, Wind & Fire will perform during a fundraising gala honoring Prince to benefit the foundation of his second wife, Manuela Testolini.
+    > 
+    > The evening Sunday to raise money for In a Perfect World will be hosted by Anthony Anderson. Bobby Brown, Beyonce's mother, Tina Knowles, Chaka Khan and Prince's "Purple Rain" co-star Apollonia Kotero were scheduled to attend.
 
 -----
 
