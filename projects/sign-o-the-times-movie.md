@@ -12,3 +12,30 @@ From **"Times Lapse"** by **Calum Waddell** in the News pages of the [April 2019
 > "When you see *Sign O' the Times*, you see some expert live musicianship," Rogers says. "Prince made concept albums and, with *Sign O' the Times*, he wanted to make a concept film -- but not many people know that the project was also a document of where his life was at that moment, with a failed engagement to Susan Moonsie, a change in his band and a pensiveness about the future. Now that story will also be told."
 
 The Blu-ray will be released by [Turbine Media Group](https://www.turbine.de/) in late Summer 2019 ([on Facebook](https://www.facebook.com/turbinemedien/)).
+
+-----
+
+https://twitter.com/CalumWaddell/status/1115680669571657729
+
+Not only are we banging out a 90 minute documentary for the German Blu of this but an added 2 -3 hours of bonus goodies with the interviewees, including cloud guitar hero Dave Rusan. If you love Prince you will want this disc. It's going to be mega.
+
+20:19 - 9 apr. 2019
+
+-----
+
+https://twitter.com/CalumWaddell/status/1114600734153158657
+
+The living legend Dr Matt Fink in front of the camera. That's a wrap on the filming for Sign o'the Times and an absolutely loaded Blu-Ray from Turbine Entertainment in Germany. 
+
+20:48 - 6 apr. 2019
+
+-----
+
+https://twitter.com/CalumWaddell/status/1114221556807479297
+
+Seeing a bit of talk about our new Prince/ Sign o'the Times documentary online at fan sites. It is English language and it is solely fixed on the Sign tour film. I can't wait for this to be completed. It's incredibly exciting. And we have additional bonus stuff in works too.
+
+19:41 - 5 apr. 2019
+
+-----
+
