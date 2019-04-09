@@ -89,7 +89,7 @@ From [**"Stevie Nicks Recalls Prince’s Surprise Appearance on ‘Stand Back’
 
 Watch "Stand Back" on YouTube:
 
-[![Stevie Nicks - Stand Back (Official Video)](https://img.youtube.com/vi/bwdDVZsz2es/0.jpg)](https://www.youtube.com/watch?v=bwdDVZsz2es)
+[![Stevie Nicks - Stand Back (Official Video)](https://img.youtube.com/vi/gwS9BIqbffU/0.jpg)](https://www.youtube.com/watch?v=gwS9BIqbffU)
 
 -----
 
