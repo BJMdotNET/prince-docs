@@ -1,7 +1,7 @@
 
 # Coachella
 
- - [**"Coachella at 20: How the festival unexpectedly nabbed Prince"**](https://www.latimes.com/entertainment/music/la-et-ms-coachella-prince-20190409-story.html) by STEVE APPLEFORD, 9 April 2019:
+ - [**"Coachella at 20: How the festival unexpectedly nabbed Prince"**](https://www.latimes.com/entertainment/music/la-et-ms-coachella-prince-20190409-story.html) by Steve Appleford, 9 April 2019:
  
     > The date for announcing the next Coachella was only weeks away, and Cutler already had a poster made up with Prince’s name on top. The musician approved. “He’s basically signed off on everything,” explains Tollett, “and I say, ‘OK, are we done?’ And he says, ‘No, I’m not playing Coachella. Not now and not ever.’”
     >
