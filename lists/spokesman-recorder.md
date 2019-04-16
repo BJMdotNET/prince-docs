@@ -1,6 +1,12 @@
 
 # Minnesota Spokesman-Recorder
 
+ - [**"Paisley Park, Mpls. landmarks honor life and legacy of Prince"**](http://spokesman-recorder.com/2019/04/15/paisley-park-mpls-landmarks-honor-life-and-legacy-of-prince/) by MSR News Online, on 15 April 2019
+ 
+    > In honor of the third anniversary of Prince’s passing on April 21, Paisley Park will celebrate his legacy with several events and tributes.
+ 
+----- 
+
  - [**"Ballerina Misty Copeland says her message is more important than her dance moves"**](http://spokesman-recorder.com/2019/03/30/ballerina-misty-copeland-says-her-message-is-more-important-than-her-dance-moves/) by Sheletta Brundidge, on 30 March 2019
  
     > If you think Misty Copeland stands strong in those ballet slippers as the first Black principal dancer at the American Ballet Theater, wait until you hear her talk about the importance of Black unity and upliftment. Her passion for the subject will be on full display at “INSPIRED: A Conversation with Misty Copeland” at the U of M’s Northrop Auditorium on Sunday night. The event will benefit Northrop’s youth programs.
