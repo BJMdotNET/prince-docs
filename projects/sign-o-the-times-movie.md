@@ -39,3 +39,14 @@ Seeing a bit of talk about our new Prince/ Sign o'the Times documentary online a
 
 -----
 
+https://highrisingproductions.com/home.html
+
+https://www.facebook.com/High-Rising-Productions-111964652147757/
+
+https://www.facebook.com/111964652147757/photos/a.473587219318830/2388318434512356/
+
+https://www.facebook.com/111964652147757/photos/a.163354123675476/2388316644512535/
+
+https://twitter.com/highrisingpro
+
+
