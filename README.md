@@ -20,9 +20,10 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
 ## Projects
 
+ - [*The Beautiful Ones* (unfinished memoir)](./projects/the-beautiful-ones-book.md)
+ - [*Sign O' the Times* (movie)](./projects/sign-o-the-times-movie.md)
  - [*Around the World in a Day* (album)](./projects/atwiad.md)
  - [*The Undertaker* (album / video)](./projects/the-undertaker.md)
- - [*Sign O' the Times* (movie)](./projects/sign-o-the-times-movie.md)
  - [Coachella 2008 (festival)](./projects/coachella.md)
 
 -----
