@@ -13,11 +13,13 @@
 
 ## Technical
 
-Hardcover, 288 pages, 6.1 x 9.1 inches. Published by Spiegel & Grau on 29 October 2019. ISBN: 0399589651 / ISBN-13: 978-0399589652.
+ - Hardcover, 288 pages, 6.1 x 9.1 inches. 
+ - Published by Spiegel & Grau on 29 October 2019. 
+ - ISBN: 0-399-58965-1 / ISBN-13: 978-0-399-58965-2.
 
 ## Press
 
- - ["Prince memoir ‘The Beautiful Ones’ coming out in the fall"](https://www.apnews.com/0c8b1deaae3b4329905d848b284f044b) By HILLEL ITALIE - 22 April 2019 - Associated Press.
+ - ["Prince memoir ‘The Beautiful Ones’ coming out in the fall"](https://www.apnews.com/0c8b1deaae3b4329905d848b284f044b) By Hillel Italie - 22 April 2019 - Associated Press.
  
     > Random House confirmed Monday (April 22) to The Associated Press that The Beautiful Ones will combine Prince's unfinished manuscript with rare photos, scrapbooks and lyrics. First announced just weeks before his 2016 death, the 288-page book will include an introduction by New Yorker writer Dan Piepenbring, whom Prince had chosen as a collaborator. The memoir is an exclusive partnership with the Prince Estate.
 	
