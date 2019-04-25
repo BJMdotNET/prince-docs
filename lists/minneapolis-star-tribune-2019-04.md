@@ -2,17 +2,61 @@
 
 Links to articles in Prince's hometown paper:
 
- - [**"Prince's greatest talent? Self-confidence, says the manager who landed 'Purple Rain' -- Bob Cavallo recounts some of the tales he'll tell at Paisley Park for the third annual Celebration."**](http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/) by Jon Bream - 19 April 2019
+ - [**"Coming soon from the Prince vault: A new album called 'Originals' -- Prince's estate is announcing the collection of his performances of songs he wrote for others."**](http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/) by Jon Bream and Chris Riemenschneider - 25 April 2019
 
-    > Cavallo had to beg Prince to write a hit song for the movie.
+    > Here’s a rundown of what’s new, and what’s expected soon, from his famously overstuffed vault.
     > 
-    > “When you said ‘Write a hit,’ he wrote a hit. This time it was ‘Kiss.’”
-	
-	Except this isn't true. The story of the recording of "Kiss" is well-known and well-documented.
-	
-	> “He totally, totally did not care a whit about budgets, money, etc. Before we finally parted ways, he was spending, I’d say, over $100,000 a week making videos at Paisley Park that meant nothing. [For] girls he met. He’d fly cameramen in. He was unstoppable.”
-	
-	Prince fans babble endlessly about his charitable work, which often wasn't anything more than Prince dropping a couple of thousands. Meanwhile he used to spent untold amounts on vanity projects.
+    > A new album: “Originals” — a collection of his original versions of songs that he wrote for other artists — is being announced Thursday at the third annual Celebration at Paisley Park. The single-disc record will include Prince’s takes on the Bangles’ “Manic Monday,” the Time’s “Jungle Love,” Sheila E’s “The Glamorous Life,” Kenny Rogers’ “You’re My Love,” Vanity 6’s “Sex Shooter,” Martika’s “Love … Thy Will Be Done” and the Family’s “Nothing Compares 2 U.” Due: June 7, Prince’s birthday, exclusively on Tidal. Available elsewhere on June 21.
+    > 
+    > His memoir: “The Beautiful Ones” will finally be published in the fall. Prince himself announced the project at a New York City news conference that included a half-hour performance in March 2016, weeks before his death. He collaborated with writer Dan Piepenbring of the Paris Review on some of the text. Random House raided Prince’s vault for personal photos as well as handwritten lyrics and the treatment he wrote for the movie “Purple Rain.” Due: Oct. 29.
+    > 
+    > “1999” reissue. Like the special edition of “Purple Rain” released last year, this 1982 double disc, featuring “Little Red Corvette” and “Delirious,” will receive a deluxe treatment with outtakes and alternate tracks. Due: During the holiday season.
+    > 
+    > “Ultimate Rave”: This triple-disc set packages two albums — 1999’s “Rave Un2 the Joy Fantastic” (featuring guests Chuck D, Eve, Gwen Stefani, Ani DiFranco and Sheryl Crow) and its 2001 remix “Rave In2 the Joy Fantastic” — plus a DVD of Prince’s 1999 pay-per-view New Year’s bash, “Rave Un2 the Year 2000,” with Morris Day & the Time, Maceo Parker, Larry Graham, George Clinton and Lenny Kravitz. Due: Friday.
+    > 
+    > Netflix documentary: “Selma” and “A Wrinkle in Time” filmmaker Ava DuVernay — whose documentary work includes “13th” and the hip-hop flick “This Is the Life” — was tapped by the Prince estate to direct an in-depth look at the Purple One as an artist. Rumor is Prince himself approached her about working together. Due: Unknown.
+    > 
+    > Apple Music documentary: A British film crew has been working on a documentary about Prince’s legendary First Avenue concert on Aug. 3, 1983, the night he not only debuted the songs for “Purple Rain” but recorded them for the film’s soundtrack. (Three tracks captured live are heard on the final album.) It was also the night 19-year-old Wendy Melvoin made her debut as the Revolution’s guitarist. Due: unknown.
+
+ - [**"Paisley Park tours draw celebs, including Katy Perry, Bruno Mars and Shania Twain -- Green Day's frontman brought his family. And Katy Perry made a return visit incognito, just like any other fan."**](http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/) by Chris Riemenschneider - 24 April 2019
+
+ - [**"David Bourn, projectionist who lit up the skies and put Prince in the spotlight, dies at 77"**](http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/) by Richard Chin - 23 April 2019
+
+    > Bourn also owned, operated and rented out theatrical spotlights like the Super Trouper models immortalized in an ABBA song. He put the spotlight on rock acts, professional wrestlers, ice skating shows, circuses and monster truck competitions at venues ranging from the Minnesota State Fair grandstand to the Metrodome.
+    > 
+    > When scenes from the 1984 film “Purple Rain” were shot at First Avenue, two of Bourn’s spotlights were used to shine on Prince. Bourn operated one, his son Brian ran the other.
+
+ - [**"C.J.: Prince protégée Ashley Támar Davis performed with pre-Destiny Beyoncé"**](http://www.startribune.com/c-j-the-fame-of-destiny-s-child-almost-broke-singer-ashley-tamar-davis/508902862/) by C.J. - 22 April 2019
+
+    > Playing the Fine Line in Minneapolis will be bittersweet Saturday for singer Ashley Támar Davis.
+    > 
+    > She’s scheduled to go on stage at 9 p.m. as the special guest of New Power Generation, a few days after the third anniversary of Prince’s death. She looks forward to performing “Redhead Stepchild,” the song she coproduced with Prince and doesn’t believe has been performed here since 2006.
+    > 
+    > “He came into my life when I was 13, 14. That’s when he was officially introduced. I received paraphernalia. I saw the ‘Purple Rain’ bike. I got a glimpse of everything Paisley. I went to a concert at Paisley, my second concert. I wasn’t star-struck. I guess it was a premonition of [him being] family, not knowing later on I would actually work with him,” she said.
+    > 
+    > “I didn’t officially work with him until 2005. I elaborate on all the stories in detail in my memoir. The book was written seven years ago. I was approached [by] a boutique publisher in Houston, and I just didn’t feel the time was right to put it out. But it’s completed, and when he passed, I had to edit it.
+
+ - [**"Prince memoir 'The Beautiful Ones' coming out in the fall"**](http://www.startribune.com/prince-memoir-the-beautiful-ones-coming-out-in-the-fall/508886482/) by Hillel Italie (Associated Press) - 22 April 2019
+
+    > The memoir Prince was working on at the time of his death is coming out Oct. 29.
+    > 
+    > Random House confirmed Monday to The Associated Press that "The Beautiful Ones" will combine a Prince unfinished manuscript with rare photos, scrapbooks and lyrics. First announced just weeks before his 2016 death, the 288-page book will include an introduction by Dan Piepenbring, whom Prince had chosen as a collaborator. The memoir is an exclusive partnership with the Prince Estate.
+
+ - [**"Prince's memoir 'The Beautiful Ones' will finally be published this fall"**](http://www.startribune.com/prince-s-memoir-the-beautiful-ones-will-finally-be-published-this-fall/508894482/) by Jon Bream - 22 April 2019
+
+    > “The Beautiful Ones” was originally announced in March 2016, at an ad hoc news conference in New York City where Prince plugged the book, took no questions from the media and performed a half-hour concert.
+    > 
+    > Prince picked writer Dan Piepenbring of The Paris Review as his collaborator.  The two had come up with about 50 pages of text, enough to convince Random House to buy the book for an undisclosed sum. The book was to arrive by fall 2017.
+    > 
+    > In spring of last year, two years after Prince’s death, his representative Esther Newberg, one of the publishing world’s most powerful literary agents, announced that the book would be available by holiday time.
+    > 
+    > That promise, like so many things in the posthumous Prince world, proved not to be true.
+
+ - [**"Prince's greatest talent? Self-confidence, says the manager who landed 'Purple Rain' -- Bob Cavallo recounts some of the tales he'll tell at Paisley Park for the third annual Celebration."**](http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/) by Jon Bream - 20 April 2019
+
+    > Cavallo, leader of a three-man team that managed Prince from 1979 to ’89, has countless tales about the Minnesota icon who died three years ago this Sunday. He’ll discuss “Purple Rain” on a panel next weekend as part of the third annual Celebration at Prince’s Paisley Park studio in Chanhassen. (Read about other highlights of the week here.)
+    > 
+    > He and Prince had a falling-out before the star’s third movie, 1990’s “Graffiti Bridge.” Cavallo went on to start another management firm (its clients included Green Day, Seal and Alanis Morissette), and produce such movies as “City of Angels” and “12 Monkeys.” In 1998, he took over Disney’s music division, working with everyone from Miley Cyrus to the Plain White T’s.
 
  - [**"In first night here, Dave Chappelle thanks Minnesota for sending 'wild' politicians to D.C."**](http://www.startribune.com/in-first-night-here-dave-chappelle-thanks-minnesota-for-sending-wild-politicians-to-d-c/508592742/) by Neal Justin - 15 April 2019
 
