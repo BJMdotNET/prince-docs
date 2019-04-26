@@ -18,6 +18,30 @@ Links to articles in Prince's hometown paper:
     > 
     > Apple Music documentary: A British film crew has been working on a documentary about Prince’s legendary First Avenue concert on Aug. 3, 1983, the night he not only debuted the songs for “Purple Rain” but recorded them for the film’s soundtrack. (Three tracks captured live are heard on the final album.) It was also the night 19-year-old Wendy Melvoin made her debut as the Revolution’s guitarist. Due: unknown.
 
+ - [**"New Prince album featuring unreleased demos out in June"**](http://www.startribune.com/new-prince-album-featuring-unreleased-demos-out-in-june/509058902/) by The Associated Press - 25 April 2019
+
+    > A new Prince album featuring his versions of songs he wrote for other artists will be released in June.
+    > 
+    > The 15-track "Originals" will include "Nothing Compares 2 U," the No. 1 hit for Sinéad O'Connor; "The Glamorous Life," Sheila E.'s signature song and Top 10 pop hit; and Kenny Rogers' "You're My Love," which Prince wrote under the name Joey Coco in 1986.
+
+ - [**"Third annual Prince commemoration at Paisley Park features emotional ups and downs -- For a third year, fans gather to celebrate and remember the artist."**](http://www.startribune.com/third-annual-prince-commemoration-at-paisley-park-features-emotional-ups-and-downs/509087732/) by Jon Bream - 25 April 2019
+
+    > At least one member of the Purple Family resolved some long-standing issues on Thursday at Paisley Park.
+    > 
+    > Jesse Johnson, guitarist for the Time, was very close with Prince in the 1980s — like brothers, the guitarist said — but they had a falling out. The depth of their divisions went viral this year when Johnson, in a private conversation, was captured on YouTube dissing Prince and saying he’d never play at a Purple tribute.
+    > 
+    > On Thursday, Johnson turned an interview session at Paisley into a 45-minute confessional monologue. A little wacky, a little humorous and totally heartfelt.
+
+ - [**"Twin Cities concerts of the week: Snoop Dogg, Chris Koza, VocalEssence does Dylan, Prince tributes -- This week's big gigs for April 26-May 2, also including Neko Case, Kodak Black, Arturo Sandoval, Foals and more."**](http://www.startribune.com/twin-cities-concerts-of-the-week-snoop-dogg-chris-koza-vocalessence-does-dylan-prince-tributes/509061512/) by Jon Bream and Chris Riemenschneider - 25 April 2019
+
+    > LP Music: As part of unofficial Prince Week, two veteran players from his orbit — NPG and Madhouse saxophonist Eric Leeds and multi-instrumentalist St. Paul Peterson of the Time and the Family— do their funky jazz thing. Their all-star Twin Cities ensemble will include drummer Petar Janjic, percussionist Marc Anderson and keyboardists Brian Z and Ricky Peterson, on break from the Fleetwood Mac tour. (11 p.m. Fri. Icehouse, $30)
+    > 
+    > [...]
+    > 
+    > Prince Live on the Big Screen: For the second year in a row, it's a concert video of the late Prince on a giant video screen with a live band of NPG alums onstage. It's oddly emotional but it worked musically last year at Target Center. The venue this time is half that size. (8 p.m. Fri., Armory, $49-$199)
+    > 
+    > Love 2 the 9's: With all the high-profile hubbub of Prince Week, here's a chill Purple happening. NPG keyboardist Tommy Barbarella will accompany Twin Cities vocalist Julius Collins, a veteran of Greazy Meal and various theater productions, in an intimate evening of Prince music. Collins has fronted a bunch of NPG alums (including Michael Bland, Sonny Thompson and Barbarella) for full-band Prince tribute shows. (11 p.m. Sat., Parkway Theater, $55-$129, theparkwaytheater.com)
+
  - [**"Paisley Park tours draw celebs, including Katy Perry, Bruno Mars and Shania Twain -- Green Day's frontman brought his family. And Katy Perry made a return visit incognito, just like any other fan."**](http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/) by Chris Riemenschneider - 24 April 2019
 
  - [**"David Bourn, projectionist who lit up the skies and put Prince in the spotlight, dies at 77"**](http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/) by Richard Chin - 23 April 2019
