@@ -8,6 +8,8 @@ Links to articles in Prince's hometown paper:
     > 
     > She recalled it for two good reasons: She had just given birth to her daughter about 10 days earlier and she got to hang out at Paisley Park with Prince.
 
+-----
+
  - [**"The Latest: Klobuchar points to Prince in talking drug issue"**](http://www.startribune.com/the-latest-klobuchar-points-to-prince-in-talking-drug-issue/506023432/) by The Associated Press - 18 February 2019
 
     > Minnesota Sen. Amy Klobuchar referenced the late singer Prince in saying that doctors need to change the prescribing habits of opioids in the United States.
