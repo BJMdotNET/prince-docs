@@ -2,7 +2,7 @@
 
 Links to articles in Prince's hometown paper:
 
- - [**"Re-live the 1980s heyday of Minnesota music and comedy in a new photo book -- Writer Martin Keller and photographer Greg Helgeson walked “the thin-grooved line between fandom and journalism,” as chronicled in “Hijinx and Hearsay.”"**](http://www.startribune.com/80s-scenesters-offer-snapshots-of-the-minneapolis-sound-in-new-photo-book/509385652/) by Tim Campbell - 7 May 2019
+ - [**"Re-live the 1980s heyday of Minnesota music and comedy in a new photo book -- Writer Martin Keller and photographer Greg Helgeson walked “the thin-grooved line between fandom and journalism,” as chronicled in “Hijinx and Hearsay.”"**](http://www.startribune.com/80s-scenesters-offer-snapshots-of-the-minneapolis-sound-in-new-photo-book/509385652/) by Tim Campbell - 7 May 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/80s-scenesters-offer-snapshots-of-the-minneapolis-sound-in-new-photo-book/509385652/)
 
     > Starting in the late 1970s, alt-weekly writer Martin Keller and photographer Greg Helgeson chronicled the birth of the Minneapolis Sound, the modern-rock revolution and the 1980s comedy boom.
     > 
@@ -26,7 +26,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"10 things you'll learn about First Avenue in new Minnesota History Center show -- First Avenue is getting the museum treatment. Here are 10 things you'll learn about Minnesota's most fabled nightclub."**](http://www.startribune.com/10-things-you-ll-learn-about-first-avenue-in-new-minnesota-history-center-show/509374312/) by Jon Bream - 3 May 2019
+ - [**"10 things you'll learn about First Avenue in new Minnesota History Center show -- First Avenue is getting the museum treatment. Here are 10 things you'll learn about Minnesota's most fabled nightclub."**](http://www.startribune.com/10-things-you-ll-learn-about-first-avenue-in-new-minnesota-history-center-show/509374312/) by Jon Bream - 3 May 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/10-things-you-ll-learn-about-first-avenue-in-new-minnesota-history-center-show/509374312/)
 
     > The History Center show includes an exhibit on Prince and “Purple Rain,” which was filmed at the club. The image projected at center was shot by Star Tribune photographer David Brewster at the 1983 concert where Prince debuted — and recorded — many of the songs for the film.
     > 
@@ -38,7 +38,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"First Avenue comes alive at the Minnesota History Center -- The Minnesota History Center is opening a First Avenue exhibit that captures nearly 50 years of Minnesota music history."**](http://www.startribune.com/first-avenue-comes-alive-at-the-minnesota-history-center/509269541/) by Leila Navidi - 2 May 2019
+ - [**"First Avenue comes alive at the Minnesota History Center -- The Minnesota History Center is opening a First Avenue exhibit that captures nearly 50 years of Minnesota music history."**](http://www.startribune.com/first-avenue-comes-alive-at-the-minnesota-history-center/509269541/) by Leila Navidi - 2 May 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/first-avenue-comes-alive-at-the-minnesota-history-center/509269541/)
 
 -----
 
