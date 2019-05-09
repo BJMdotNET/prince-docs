@@ -2,6 +2,12 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"With Prince on a big screen, fans party like it's 2009 at the Armory -- It was the second annual posthumous concert featuring live musicians accompanying a video of Prince performing."**](http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/) by Jon Bream - 27 April 2019
+
+    > On Friday, the Big Screen show was reprised at the Armory in Minneapolis. The revamped fortress with its wonderfully upgraded acoustics is half the size of the Timberwolves’ arena. And, as was the case last year, the place was only half full, with about 3,000 people.
+
+-----
+
  - [**"Coming soon from the Prince vault: A new album called 'Originals' -- Prince's estate is announcing the collection of his performances of songs he wrote for others."**](http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/) by Jon Bream and Chris Riemenschneider - 25 April 2019
 
     > Here’s a rundown of what’s new, and what’s expected soon, from his famously overstuffed vault.
@@ -24,7 +30,7 @@ Links to articles in Prince's hometown paper:
 
     > A new Prince album featuring his versions of songs he wrote for other artists will be released in June.
     > 
-    > The 15-track "Originals" will include "Nothing Compares 2 U," the No. 1 hit for Sinéad O'Connor; "The Glamorous Life," Sheila E.'s signature song and Top 10 pop hit; and Kenny Rogers' "You're My Love," which Prince wrote under the name Joey Coco in 1986.
+    > The 15-track “Originals” will include “Nothing Compares 2 U,” the No. 1 hit for Sinéad O'Connor; “The Glamorous Life,” Sheila E.'s signature song and Top 10 pop hit; and Kenny Rogers' “You're My Love,” which Prince wrote under the name Joey Coco in 1986.
 
 -----
 
@@ -78,7 +84,7 @@ Links to articles in Prince's hometown paper:
 
     > The memoir Prince was working on at the time of his death is coming out Oct. 29.
     > 
-    > Random House confirmed Monday to The Associated Press that "The Beautiful Ones" will combine a Prince unfinished manuscript with rare photos, scrapbooks and lyrics. First announced just weeks before his 2016 death, the 288-page book will include an introduction by Dan Piepenbring, whom Prince had chosen as a collaborator. The memoir is an exclusive partnership with the Prince Estate.
+    > Random House confirmed Monday to The Associated Press that “The Beautiful Ones” will combine a Prince unfinished manuscript with rare photos, scrapbooks and lyrics. First announced just weeks before his 2016 death, the 288-page book will include an introduction by Dan Piepenbring, whom Prince had chosen as a collaborator. The memoir is an exclusive partnership with the Prince Estate.
 
 -----
 
