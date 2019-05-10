@@ -16,3 +16,5 @@ As reported by Melanie Goodfellow for Screen on 10 February 2017: [**"Wild Bunch
  > The portrait will be presented as a road trip taking in Paris, LA and New York.
  
 However, since then nothing has been heard about this project.
+
+Note that the movie is not listed @ https://www.wildbunch.biz/movie/ (if you search for "Prince" or "pop" nothing relevant comes up).
