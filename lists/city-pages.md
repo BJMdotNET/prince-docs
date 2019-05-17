@@ -1,6 +1,18 @@
 
 # City Pages
 
+ - [**"'Prince 'hurt me to my soul': Jesse Johnson kicks off Celebration 2019 with emotional onstage interview"**](http://www.citypages.com/music/prince-hurt-me-to-my-soul-jesse-johnson-kicks-off-celebration-2019-with-emotional-onstage-interview/509097851) By Keith Harris -- 26 April 2019
+ 
+    > In an onstage interview with Andrea Swensson of the Current, former Time guitarist Jesse Johnson spoke extensively and frankly about his difficult relationship with Prince.
+    > 
+    > “A lot of things he did … hurt me to my soul,” Johnson said, according to Ross Raihala of the Pioneer Press. “Would I come here if he was alive? I don’t think so.”
+    > 
+    > [...]
+    > 
+    > Jon Bream of the Star Tribune characterized the chat as “a little wacky, a little humorous, and totally heartfelt.” Swensson called it “brave, authentic, emotionally candid, and 100% honest about his complicated relationship with Prince.” For Raihala it was “a long, rambling monologue.”
+    
+-----
+
  - [**"Let's make fun of Weezer's song about Prince in the week's Go Slow No"**](http://www.citypages.com/music/lets-make-fun-of-weezers-song-about-prince-in-the-weeks-go-slow-no/506877321) March 8, 2019 by Keith Harris in Music
  
     > As much as anyone, Rivers Cuomo established the contours of the modern-rock hit as we know it, and as punishment he’s doomed to dopily haunt its commercial confines forever. Despite his aptitude for tune, Cuomo’s lyrics have always stumbled, and their gawkiness only simulates a vulnerable charm if you first encounter them at a particularly susceptible moment. So maybe schtick-rock throwaways like “Zombie Bastards,” “Can’t Knock the Hustle,” and “The Prince Who Wanted Everything” (somebody’s surely rolling in his Paisley-Park-shaped urn) aren’t exactly unworthy of the auteur who once sang “Flip on the telly/Wrestle with Jimmy” after all. Maybe you’ve just outgrown him.
