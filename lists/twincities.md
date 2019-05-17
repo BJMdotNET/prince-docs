@@ -1,15 +1,13 @@
 
 # TwinCities.com - Pioneer Press
 
- - [**"'Prince 'hurt me to my soul': Jesse Johnson kicks off Celebration 2019 with emotional onstage interview"**](http://www.citypages.com/music/prince-hurt-me-to-my-soul-jesse-johnson-kicks-off-celebration-2019-with-emotional-onstage-interview/509097851) By Keith Harris -- 26 April 2019
+ - [**"John Shipley: It’s time to let Prince rest in peace"**](https://www.twincities.com/2019/04/29/john-shipley-its-time-to-let-prince-rest-in-peace/) By JOHN SHIPLEY -- 29 April 2019
  
-    > In an onstage interview with Andrea Swensson of the Current, former Time guitarist Jesse Johnson spoke extensively and frankly about his difficult relationship with Prince.
+    > OK, Minnesota, we need to talk about Prince. It’s time to let the man rest in peace.
     > 
-    > “A lot of things he did … hurt me to my soul,” Johnson said, according to Ross Raihala of the Pioneer Press. “Would I come here if he was alive? I don’t think so.”
+    > In the last full week of April alone there were 15 Prince-related events one could attend in the greater Twin Cities, from a “tribute” pub crawl to last weekend’s Celebration 2019 at Paisley Park Studio, where a regular ticket cost $549 and a VIP pass was $1,049.
     > 
-    > [...]
-    > 
-    > Jon Bream of the Star Tribune characterized the chat as “a little wacky, a little humorous, and totally heartfelt.” Swensson called it “brave, authentic, emotionally candid, and 100% honest about his complicated relationship with Prince.” For Raihala it was “a long, rambling monologue.”
+    > There’s a fine line between heartfelt tribute and brazen cash grab, and the Rubicon has been crossed. Since his untimely death on April 21, 2016, a cottage industry has sprung up around the iconoclastic, and famously private, musician.
     
 -----
 
