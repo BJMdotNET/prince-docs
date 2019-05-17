@@ -2,6 +2,20 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Two veteran Minnesota bands earn their First Avenue stars (one a do-over)"**](http://www.startribune.com/two-veteran-minnesota-bands-earn-their-first-avenue-stars-one-a-do-over/509260572/) by Chris Riemenschneider - 30 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/two-veteran-minnesota-bands-earn-their-first-avenue-stars-one-a-do-over/509260572/)
+
+    > A couple enduring Minnesota bands landed stars on the walls of First Avenue this past week – although in the case of Prince’s bandmates in the Revolution, it was a case of getting theirs back.
+    > 
+    > Together again to perform for Paisley Park's Celebration on Sunday, Mark Brown, Wendy Melvoin, Lisa Coleman, Bobby Z and, “Dr.” Matt Fink were all on hand Monday for the unveiling of their new silver star outside the old black rock hall, which appropriately sits right next to the oft-photographed gold star of their late bandleader and friend. Not to mention, a little band named Nirvana is on the other side.
+    > 
+    > Maybe it’s because she shook the tambourine that Prince gave her there three years ago – at what turned out to be the last concert he saw, a mere two days before he died. (She said she should probably have put the tambourine in a frame.)
+    > 
+    > A performer at the club even before he teamed up with Prince – he drummed along to disco records as a teen when the club was still Uncle Sam’s – Bobby Z said, “We are thrilled to have our star next to our mentor.”
+    > 
+    > “So much of our history was made behind these walls. We would like to thank Prince, First Avenue and all of our fans around the world for the love and support.”
+
+-----
+
  - [**"With Prince on a big screen, fans party like it's 2009 at the Armory -- It was the second annual posthumous concert featuring live musicians accompanying a video of Prince performing."**](http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/) by Jon Bream - 27 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/)
 
     > On Friday, the Big Screen show was reprised at the Armory in Minneapolis. The revamped fortress with its wonderfully upgraded acoustics is half the size of the Timberwolves’ arena. And, as was the case last year, the place was only half full, with about 3,000 people.
