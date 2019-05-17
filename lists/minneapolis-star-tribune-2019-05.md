@@ -2,6 +2,16 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Lizz Wright shakes her soulful Prince tambourine at the Dakota"**](http://www.startribune.com/lizz-wright-shakes-her-soulful-prince-tambourine-at-the-dakota/510019492/) by Jon Bream - 16 May 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/lizz-wright-shakes-her-soulful-prince-tambourine-at-the-dakota/510019492/)
+
+    > There’s something special about Lizz Wright at the Dakota.
+    > 
+    > Maybe it’s because the gospel-soul-jazz-folk singer from Georgia was jazzed about the full house that showed up to see her Wednesday night even though she doesn’t have a new record out.
+    > 
+    > Maybe it’s because she shook the tambourine that Prince gave her there three years ago – at what turned out to be the last concert he saw, a mere two days before he died. (She said she should probably have put the tambourine in a frame.)
+
+-----
+
  - [**"Re-live the 1980s heyday of Minnesota music and comedy in a new photo book -- Writer Martin Keller and photographer Greg Helgeson walked “the thin-grooved line between fandom and journalism,” as chronicled in “Hijinx and Hearsay.”"**](http://www.startribune.com/80s-scenesters-offer-snapshots-of-the-minneapolis-sound-in-new-photo-book/509385652/) by Tim Campbell - 7 May 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/80s-scenesters-offer-snapshots-of-the-minneapolis-sound-in-new-photo-book/509385652/)
 
     > Starting in the late 1970s, alt-weekly writer Martin Keller and photographer Greg Helgeson chronicled the birth of the Minneapolis Sound, the modern-rock revolution and the 1980s comedy boom.
