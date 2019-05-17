@@ -6,7 +6,7 @@ Links to articles in Prince's hometown paper:
 
     > The work of famed celebrity and fashion photographer Herb Ritts is going on display at an upstate New York museum.
     > 
-    > "Herb Ritts: The Rock Portraits" highlights the six new exhibits opening Monday at the Fenimore Art Museum in Cooperstown.
+    > “Herb Ritts: The Rock Portraits” highlights the six new exhibits opening Monday at the Fenimore Art Museum in Cooperstown.
     > 
     > [...]
     > 
@@ -22,11 +22,11 @@ Links to articles in Prince's hometown paper:
 
  - [**"Review: Ex-Prince guitarist Donna Grantis explores fusion"**](http://www.startribune.com/review-ex-prince-guitarist-donna-grantis-explores-fusion/507416972/) by Pablo Gorondi (Associated Press) - 20 March 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/review-ex-prince-guitarist-donna-grantis-explores-fusion/507416972/)
 
-    > Donna Grantis, "Diamonds & Dynamite" (eOne)
+    > Donna Grantis, “Diamonds & Dynamite” (eOne)
     > 
     > [...]
     > 
-    > Recorded live-to-tape in just two days, a pace similar to that of many great jazz albums, "Diamonds & Dynamite" is an experimentally adventurous set, which contains ample evidence why Prince held Grantis in such high regard.
+    > Recorded live-to-tape in just two days, a pace similar to that of many great jazz albums, “Diamonds & Dynamite” is an experimentally adventurous set, which contains ample evidence why Prince held Grantis in such high regard.
 
 -----
 
@@ -38,9 +38,9 @@ Links to articles in Prince's hometown paper:
 
  - [**"Colbert's bandleader Jon Batiste honors Prince in final 'Live From Here' St. Paul show of the season"**](http://www.startribune.com/colbert-s-bandleader-jon-batiste-honors-prince-in-live-from-here-s-last-st-paul-show-of-the-season/507271362/) by Neal Justin - 18 March 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/colbert-s-bandleader-jon-batiste-honors-prince-in-live-from-here-s-last-st-paul-show-of-the-season/507271362/)
 
-    > "Live From Here" may be drifting away from its Minnesota roots, but the national radio show found all sorts of ways to pay tribute to the state with its last Twin Cities show of the season and its first without host Chris Thile.
+    > “Live From Here” may be drifting away from its Minnesota roots, but the national radio show found all sorts of ways to pay tribute to the state with its last Twin Cities show of the season and its first without host Chris Thile.
     > 
-    > Guest host Jon Batiste, best known as the bandleader for CBS's "Late Show With Stephen Colbert," talked about how he spent time in college obsessed with Prince's "Dirty Mind" album before steaming up the Fitzgerald Theatre with a sulty, jazz version of "How Come U Don't Call Me Anymore."
+    > Guest host Jon Batiste, best known as the bandleader for CBS's “Late Show With Stephen Colbert,” talked about how he spent time in college obsessed with Prince's “Dirty Mind” album before steaming up the Fitzgerald Theatre with a sulty, jazz version of “How Come U Don't Call Me Anymore.”
 
 -----
 
@@ -74,9 +74,9 @@ Links to articles in Prince's hometown paper:
 
  - [**"Review: Weezer's 'Black Album' mocks, shocks and knocks"**](http://www.startribune.com/review-weezer-s-black-album-mocks-shocks-and-knocks/506721302/) by Pablo Gorondi (Associated Press) - 5 March 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/review-weezer-s-black-album-mocks-shocks-and-knocks/506721302/)
 
-    > Fashion and decor experts say black and teal are a good combination, so there are ways in which Weezer's "Black Album" matches the "Teal Album," their barely-a-month-ago release of largely 1980s cover versions motivated by the surprising success of their take on Toto's "Africa."
+    > Fashion and decor experts say black and teal are a good combination, so there are ways in which Weezer's “Black Album” matches the “Teal Album,” their barely-a-month-ago release of largely 1980s cover versions motivated by the surprising success of their take on Toto's “Africa.”
     > 
-    > "Black Album," for example, also harkens back to the '80s "me decade" with some self-referential moments, makes generous use of kitsch and includes "The Prince Who Wanted Everything," a song that alludes to paisley and a red corvette but crassly ends up making Prince come across like a second-rate Liberace.
+    > “Black Album,” for example, also harkens back to the '80s “me decade” with some self-referential moments, makes generous use of kitsch and includes “The Prince Who Wanted Everything,” a song that alludes to paisley and a red corvette but crassly ends up making Prince come across like a second-rate Liberace.
 
 -----
 
@@ -84,7 +84,7 @@ Links to articles in Prince's hometown paper:
 
     > Andra Day, Dave Stewart of the Eurythmics and Philip Bailey and Verdine White of Earth, Wind & Fire will perform during a fundraising gala honoring Prince to benefit the foundation of his second wife, Manuela Testolini.
     > 
-    > The evening Sunday to raise money for In a Perfect World will be hosted by Anthony Anderson. Bobby Brown, Beyonce's mother, Tina Knowles, Chaka Khan and Prince's "Purple Rain" co-star Apollonia Kotero were scheduled to attend.
+    > The evening Sunday to raise money for In a Perfect World will be hosted by Anthony Anderson. Bobby Brown, Beyonce's mother, Tina Knowles, Chaka Khan and Prince's “Purple Rain” co-star Apollonia Kotero were scheduled to attend.
 
 -----
 
