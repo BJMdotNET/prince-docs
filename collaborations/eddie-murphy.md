@@ -1,7 +1,7 @@
 
 # Eddie Murphy
 
-The article [**"The most hilarious comedies, from *‘Coming to America’* to *‘Ghostbusters,’* had a dark side: book"**](https://nypost.com/2019/05/16/new-book-reveals-all-the-drama-behind-classic-comedy-movies/) by Larry Getlen (16 May 2019, ***New York Post***) quotes several anecdotes from **Nick de Semlyen**'s upcoming book ***“Wild and Crazy Guys: How the Comedy Mavericks of the ’80s Changed Hollywood Forever”*** (Crown Archetype, out May 28). Of particular relevance is this part:
+The article [**"The most hilarious comedies, from *‘Coming to America’* to *‘Ghostbusters,’* had a dark side: book"**](https://nypost.com/2019/05/16/new-book-reveals-all-the-drama-behind-classic-comedy-movies/) by **Larry Getlen** (16 May 2019, ***New York Post***) quotes several anecdotes from **Nick de Semlyen**'s upcoming book ***“Wild and Crazy Guys: How the Comedy Mavericks of the ’80s Changed Hollywood Forever”*** (Crown Archetype, out May 28). Of particular relevance is this part:
 
 > While that particular feud was not his doing, Murphy caused plenty of drama, according to de Semlyen.
 > 
@@ -22,3 +22,7 @@ As it turns out, this has been mentioned before: [**"11 things you didn’t know
 > 5 - It almost starred Michael Jackson… and Prince
 > 
 > When the movie went into production, there was a plan to include a cameo-studded scene in which Akeem has a dance-off in a New York street with both Michael Jackson (whose Thriller video had been directed by John Landis) and Prince. However, thanks to a very tight filming schedule, it proved too ambitious to pull off.
+
+-----
+
+Nick de Semlyen points to ***“Fatal Subtraction: The Inside Story of Buchwald V. Paramount”*** by Pierce O'Donnell and Dennis McDougal (Doubleday, 1992) as his source.
