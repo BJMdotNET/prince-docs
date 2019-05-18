@@ -1,7 +1,7 @@
 
 # Bob Cavallo
 
-[Was “Kiss” the result of Bob Cavallo telling Prince that “Under the Cherry Moon” needed a hit song?](https://musicfans.stackexchange.com/questions/8141/was-kiss-the-result-of-bob-cavallo-telling-prince-that-under-the-cherry-moon)
+[Was “Kiss” the result of Bob Cavallo telling Prince that “Under the Cherry Moon” needed a hit song?](https://musicfans.stackexchange.com/q/8141/129)
 
 The question:
 
