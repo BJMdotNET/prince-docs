@@ -2,7 +2,7 @@
 
 Links to articles in Prince's hometown paper:
 
- - [**"Two veteran Minnesota bands earn their First Avenue stars (one a do-over)"**](http://www.startribune.com/two-veteran-minnesota-bands-earn-their-first-avenue-stars-one-a-do-over/509260572/) by Chris Riemenschneider - 30 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/two-veteran-minnesota-bands-earn-their-first-avenue-stars-one-a-do-over/509260572/)
+ - [**"Two veteran Minnesota bands earn their First Avenue stars (one a do-over)"**](http://www.startribune.com/two-veteran-minnesota-bands-earn-their-first-avenue-stars-one-a-do-over/509260572/) by Chris Riemenschneider - 30 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/two-veteran-minnesota-bands-earn-their-first-avenue-stars-one-a-do-over/509260572/))
 
     > A couple enduring Minnesota bands landed stars on the walls of First Avenue this past week – although in the case of Prince’s bandmates in the Revolution, it was a case of getting theirs back.
     > 
@@ -16,13 +16,13 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"With Prince on a big screen, fans party like it's 2009 at the Armory -- It was the second annual posthumous concert featuring live musicians accompanying a video of Prince performing."**](http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/) by Jon Bream - 27 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/)
+ - [**"With Prince on a big screen, fans party like it's 2009 at the Armory -- It was the second annual posthumous concert featuring live musicians accompanying a video of Prince performing."**](http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/) by Jon Bream - 27 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/))
 
     > On Friday, the Big Screen show was reprised at the Armory in Minneapolis. The revamped fortress with its wonderfully upgraded acoustics is half the size of the Timberwolves’ arena. And, as was the case last year, the place was only half full, with about 3,000 people.
 
 -----
 
- - [**"Coming soon from the Prince vault: A new album called 'Originals' -- Prince's estate is announcing the collection of his performances of songs he wrote for others."**](http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/) by Jon Bream and Chris Riemenschneider - 25 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/)
+ - [**"Coming soon from the Prince vault: A new album called 'Originals' -- Prince's estate is announcing the collection of his performances of songs he wrote for others."**](http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/) by Jon Bream and Chris Riemenschneider - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/))
 
     > Here’s a rundown of what’s new, and what’s expected soon, from his famously overstuffed vault.
     > 
@@ -40,7 +40,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"New Prince album featuring unreleased demos out in June"**](http://www.startribune.com/new-prince-album-featuring-unreleased-demos-out-in-june/509058902/) by The Associated Press - 25 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/new-prince-album-featuring-unreleased-demos-out-in-june/509058902/)
+ - [**"New Prince album featuring unreleased demos out in June"**](http://www.startribune.com/new-prince-album-featuring-unreleased-demos-out-in-june/509058902/) by The Associated Press - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/new-prince-album-featuring-unreleased-demos-out-in-june/509058902/))
 
     > A new Prince album featuring his versions of songs he wrote for other artists will be released in June.
     > 
@@ -48,7 +48,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Third annual Prince commemoration at Paisley Park features emotional ups and downs -- For a third year, fans gather to celebrate and remember the artist."**](http://www.startribune.com/third-annual-prince-commemoration-at-paisley-park-features-emotional-ups-and-downs/509087732/) by Jon Bream - 25 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/third-annual-prince-commemoration-at-paisley-park-features-emotional-ups-and-downs/509087732/)
+ - [**"Third annual Prince commemoration at Paisley Park features emotional ups and downs -- For a third year, fans gather to celebrate and remember the artist."**](http://www.startribune.com/third-annual-prince-commemoration-at-paisley-park-features-emotional-ups-and-downs/509087732/) by Jon Bream - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/third-annual-prince-commemoration-at-paisley-park-features-emotional-ups-and-downs/509087732/))
 
     > At least one member of the Purple Family resolved some long-standing issues on Thursday at Paisley Park.
     > 
@@ -58,7 +58,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Twin Cities concerts of the week: Snoop Dogg, Chris Koza, VocalEssence does Dylan, Prince tributes -- This week's big gigs for April 26-May 2, also including Neko Case, Kodak Black, Arturo Sandoval, Foals and more."**](http://www.startribune.com/twin-cities-concerts-of-the-week-snoop-dogg-chris-koza-vocalessence-does-dylan-prince-tributes/509061512/) by Jon Bream and Chris Riemenschneider - 25 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/twin-cities-concerts-of-the-week-snoop-dogg-chris-koza-vocalessence-does-dylan-prince-tributes/509061512/)
+ - [**"Twin Cities concerts of the week: Snoop Dogg, Chris Koza, VocalEssence does Dylan, Prince tributes -- This week's big gigs for April 26-May 2, also including Neko Case, Kodak Black, Arturo Sandoval, Foals and more."**](http://www.startribune.com/twin-cities-concerts-of-the-week-snoop-dogg-chris-koza-vocalessence-does-dylan-prince-tributes/509061512/) by Jon Bream and Chris Riemenschneider - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/twin-cities-concerts-of-the-week-snoop-dogg-chris-koza-vocalessence-does-dylan-prince-tributes/509061512/))
 
     > LP Music: As part of unofficial Prince Week, two veteran players from his orbit — NPG and Madhouse saxophonist Eric Leeds and multi-instrumentalist St. Paul Peterson of the Time and the Family— do their funky jazz thing. Their all-star Twin Cities ensemble will include drummer Petar Janjic, percussionist Marc Anderson and keyboardists Brian Z and Ricky Peterson, on break from the Fleetwood Mac tour. (11 p.m. Fri. Icehouse, $30)
     > 
@@ -70,11 +70,11 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Paisley Park tours draw celebs, including Katy Perry, Bruno Mars and Shania Twain -- Green Day's frontman brought his family. And Katy Perry made a return visit incognito, just like any other fan."**](http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/) by Chris Riemenschneider - 24 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/)
+ - [**"Paisley Park tours draw celebs, including Katy Perry, Bruno Mars and Shania Twain -- Green Day's frontman brought his family. And Katy Perry made a return visit incognito, just like any other fan."**](http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/) by Chris Riemenschneider - 24 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/))
 
 -----
 
- - [**"David Bourn, projectionist who lit up the skies and put Prince in the spotlight, dies at 77"**](http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/) by Richard Chin - 23 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/)
+ - [**"David Bourn, projectionist who lit up the skies and put Prince in the spotlight, dies at 77"**](http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/) by Richard Chin - 23 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/))
 
     > Bourn also owned, operated and rented out theatrical spotlights like the Super Trouper models immortalized in an ABBA song. He put the spotlight on rock acts, professional wrestlers, ice skating shows, circuses and monster truck competitions at venues ranging from the Minnesota State Fair grandstand to the Metrodome.
     > 
@@ -82,7 +82,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"C.J.: Prince protégée Ashley Támar Davis performed with pre-Destiny Beyoncé"**](http://www.startribune.com/c-j-the-fame-of-destiny-s-child-almost-broke-singer-ashley-tamar-davis/508902862/) by C.J. - 22 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/c-j-the-fame-of-destiny-s-child-almost-broke-singer-ashley-tamar-davis/508902862/)
+ - [**"C.J.: Prince protégée Ashley Támar Davis performed with pre-Destiny Beyoncé"**](http://www.startribune.com/c-j-the-fame-of-destiny-s-child-almost-broke-singer-ashley-tamar-davis/508902862/) by C.J. - 22 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/c-j-the-fame-of-destiny-s-child-almost-broke-singer-ashley-tamar-davis/508902862/))
 
     > Playing the Fine Line in Minneapolis will be bittersweet Saturday for singer Ashley Támar Davis.
     > 
@@ -94,7 +94,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Prince memoir 'The Beautiful Ones' coming out in the fall"**](http://www.startribune.com/prince-memoir-the-beautiful-ones-coming-out-in-the-fall/508886482/) by Hillel Italie (Associated Press) - 22 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-memoir-the-beautiful-ones-coming-out-in-the-fall/508886482/)
+ - [**"Prince memoir 'The Beautiful Ones' coming out in the fall"**](http://www.startribune.com/prince-memoir-the-beautiful-ones-coming-out-in-the-fall/508886482/) by Hillel Italie (Associated Press) - 22 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-memoir-the-beautiful-ones-coming-out-in-the-fall/508886482/))
 
     > The memoir Prince was working on at the time of his death is coming out Oct. 29.
     > 
@@ -102,7 +102,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Prince's memoir 'The Beautiful Ones' will finally be published this fall"**](http://www.startribune.com/prince-s-memoir-the-beautiful-ones-will-finally-be-published-this-fall/508894482/) by Jon Bream - 22 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-s-memoir-the-beautiful-ones-will-finally-be-published-this-fall/508894482/)
+ - [**"Prince's memoir 'The Beautiful Ones' will finally be published this fall"**](http://www.startribune.com/prince-s-memoir-the-beautiful-ones-will-finally-be-published-this-fall/508894482/) by Jon Bream - 22 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-s-memoir-the-beautiful-ones-will-finally-be-published-this-fall/508894482/))
 
     > “The Beautiful Ones” was originally announced in March 2016, at an ad hoc news conference in New York City where Prince plugged the book, took no questions from the media and performed a half-hour concert.
     > 
@@ -114,7 +114,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Prince's greatest talent? Self-confidence, says the manager who landed 'Purple Rain' -- Bob Cavallo recounts some of the tales he'll tell at Paisley Park for the third annual Celebration."**](http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/) by Jon Bream - 20 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/)
+ - [**"Prince's greatest talent? Self-confidence, says the manager who landed 'Purple Rain' -- Bob Cavallo recounts some of the tales he'll tell at Paisley Park for the third annual Celebration."**](http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/) by Jon Bream - 20 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/))
 
     > Cavallo, leader of a three-man team that managed Prince from 1979 to ’89, has countless tales about the Minnesota icon who died three years ago this Sunday. He’ll discuss “Purple Rain” on a panel next weekend as part of the third annual Celebration at Prince’s Paisley Park studio in Chanhassen. (Read about other highlights of the week here.)
     > 
@@ -122,7 +122,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"In first night here, Dave Chappelle thanks Minnesota for sending 'wild' politicians to D.C."**](http://www.startribune.com/in-first-night-here-dave-chappelle-thanks-minnesota-for-sending-wild-politicians-to-d-c/508592742/) by Neal Justin - 15 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/in-first-night-here-dave-chappelle-thanks-minnesota-for-sending-wild-politicians-to-d-c/508592742/)
+ - [**"In first night here, Dave Chappelle thanks Minnesota for sending 'wild' politicians to D.C."**](http://www.startribune.com/in-first-night-here-dave-chappelle-thanks-minnesota-for-sending-wild-politicians-to-d-c/508592742/) by Neal Justin - 15 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/in-first-night-here-dave-chappelle-thanks-minnesota-for-sending-wild-politicians-to-d-c/508592742/))
 
     > Less controversial were the comic’s fond memories of his late pal Prince. He opened the show by leading the crowd in an a cappella version of “1999” and returned to the number several times, sharing some intimate anecdotes in between.
     > 
@@ -140,7 +140,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Gospel of Prince preached at Minnesota seminary"**](http://www.startribune.com/gospel-of-prince-preached-at-minnesota-seminary/508503562/) by Jean Hopfensperger - 12 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/gospel-of-prince-preached-at-minnesota-seminary/508503562/)
+ - [**"Gospel of Prince preached at Minnesota seminary"**](http://www.startribune.com/gospel-of-prince-preached-at-minnesota-seminary/508503562/) by Jean Hopfensperger - 12 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/gospel-of-prince-preached-at-minnesota-seminary/508503562/))
 
     > A St. Paul seminary has launched a project called the Theology of Prince, which explores the spiritual influence of the artist better known for his music than divine inspiration. What started as a contest to reveal how Prince influenced fans’ spiritual lives has resulted in a nearly 400-page online Theology of Prince journal, an online gallery, and educational events now and for the future.
     > 
@@ -148,7 +148,7 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Pick Six: Praise for Lil Nas X, Bob Mould, Zedd, 'Jay's Longhorn' and more"**](http://www.startribune.com/pick-six-praise-for-lil-nas-x-bob-mould-zedd-jay-s-longhorn-and-more/508453002/) by Jon Bream - 12 April 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/pick-six-praise-for-lil-nas-x-bob-mould-zedd-jay-s-longhorn-and-more/508453002/)
+ - [**"Pick Six: Praise for Lil Nas X, Bob Mould, Zedd, 'Jay's Longhorn' and more"**](http://www.startribune.com/pick-six-praise-for-lil-nas-x-bob-mould-zedd-jay-s-longhorn-and-more/508453002/) by Jon Bream - 12 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/pick-six-praise-for-lil-nas-x-bob-mould-zedd-jay-s-longhorn-and-more/508453002/))
 
     > ESPN’s report on Prince and basketball. Despite a dearth of historic visuals, ESPN managed to entertainingly explore Prince’s love of hoops by interviewing a coach and teammate from Central High, Sheila E, Micki Free and others who played basketball with him. This Final Four piece was enhanced by an artist’s sketches of Prince playing.
 
