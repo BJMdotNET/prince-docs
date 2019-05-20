@@ -2,6 +2,18 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Nerdy comic-musician Fred Armisen salutes Prince, Grant Hart at First Avenue"**](http://www.startribune.com/nerdy-comic-musician-fred-armisen-salutes-prince-grant-hart-at-first-avenue/510055762/) by Jon Bream - 17 May 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/nerdy-comic-musician-fred-armisen-salutes-prince-grant-hart-at-first-avenue/510055762/)
+
+    > The show is billed as Comedy for Musicians But Everyone Is Welcome, and you couldn’t find a more apt description of Fred Armisen’s performance Thursday night at sold-out First Avenue in Minneapolis.
+    > 
+    > [...]
+    > 
+    > And, yes, Armisen went to Paisley Park before Thursday’s gig. Surprisingly, he left his Purple references to a minimum at First Ave except for mentioning that the first time he was in Minneapolis, he had someone drive him to Chanhassen, look at the outside of Paisley Park and then drive him back downtown.
+    > 
+    > And, of course, Armisen accommodated a fan’s request for a taste of “The Prince Show,” a SNL bit in which Armisen portrays Prince as a talk show host with Beyonce (played by Maya Rudolph) as his sidekick. Armisen strummed the theme song on guitar and then led the crowd in a sing-long of “Raspberry Beret.”
+
+-----
+
  - [**"Lizz Wright shakes her soulful Prince tambourine at the Dakota"**](http://www.startribune.com/lizz-wright-shakes-her-soulful-prince-tambourine-at-the-dakota/510019492/) by Jon Bream - 16 May 2019 | [mirror](https://web.archive.org/web/*/http://www.startribune.com/lizz-wright-shakes-her-soulful-prince-tambourine-at-the-dakota/510019492/)
 
     > There’s something special about Lizz Wright at the Dakota.
