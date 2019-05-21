@@ -24,7 +24,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Mr. Nelson: On The North Side (currently unreleased)](./documentaries/mr-nelson-on-the-north-side.md)
  - [Prince: Pop Life (currently unreleased)](./documentaries/prince-pop-life.md)
  - [Prince - The Peach & Black Times (currently unreleased)](./documentaries/prince-the-peach-and-black-times.md)
- - [Behind The Beat (1988)](./documentaries/behind-the-beat.md)
+ - [Prince 4 U (1988)](./documentaries/prince-4-u.md)
 
 -----
 
