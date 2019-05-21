@@ -1,7 +1,7 @@
 
-# Behind The Beat
+# Prince 4 U
 
-Behind The Beat, part of BBC 2’s youth programme schedule called DEF II that was Janet Street Porter’s brainchild
+A short documentary, broadcast in 1988 as a special from ***Behind The Beat***, a weekly music program which was part of **BBC 2**’s youth programme schedule called **DEF II** that was Janet Street Porter’s brainchild.
 
 -----
 
