@@ -1,7 +1,7 @@
 
 # Prince 4 U
 
-A short documentary, broadcast in 1988 as a special from ***Behind The Beat***, a weekly music program which was part of **BBC 2**’s youth programme schedule called **DEF II** that was Janet Street Porter’s brainchild.
+A 25 minute documentary, broadcast in 1988 as a special from ***Behind The Beat***, a weekly music program which was part of **BBC 2**’s youth programme schedule called **DEF II** that was Janet Street Porter’s brainchild.
 
 -----
 
@@ -40,3 +40,8 @@ Series producer SHARON ALI
 BBC Pebble Mill (R)
 
 Producer: Terry Jervis
+
+-----
+
+This seems to be available on Getty, but it is not publicly viewable: https://www.gettyimages.be/detail/video/behind-the-beat-special-featuring-prince-and-the-nieuwsfootage/BBC_NBML708K
+
