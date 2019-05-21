@@ -45,3 +45,7 @@ Producer: Terry Jervis
 
 This seems to be available on Getty, but it is not publicly viewable: https://www.gettyimages.be/detail/video/behind-the-beat-special-featuring-prince-and-the-nieuwsfootage/BBC_NBML708K
 
+-----
+
+See also http://www.bfi.org.uk/films-tv-people/4ce2b79c7fe1b
+
