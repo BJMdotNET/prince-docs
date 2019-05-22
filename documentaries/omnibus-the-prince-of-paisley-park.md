@@ -19,3 +19,7 @@ Prince is the legendary genius of contemporary pop music. His talents as a proli
 Producer Bob Portway 
 
 Series editor Andrew Snell 
+
+-----
+
+It appears that the 7-13 December 1991 issue of Radio Times (issue 3546) has a (short?) article about this documentary on page 10 in its "MUSIC AND ARTS" section.
