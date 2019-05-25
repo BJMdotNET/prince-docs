@@ -17,6 +17,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [The Bangles](./collaborations/the-bangles.md)
  - [Bob Cavallo](./collaborations/bob-cavallo.md)
  - [Eddie Murphy](./collaborations/eddie-murphy.md)
+ - [Lisa Coleman](./collaborations/lisa-coleman.md)
 
 -----
 
@@ -35,9 +36,20 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
  - [*The Beautiful Ones* (unfinished memoir)](./projects/the-beautiful-ones-book.md)
  - [*Sign O' the Times* (movie)](./projects/sign-o-the-times-movie.md)
- - [*Around the World in a Day* (album)](./projects/around-the-world-in-a-day-album.md)
  - [*The Undertaker* (album / video)](./projects/the-undertaker-album.md)
  - [Coachella 2008 (festival)](./projects/coachella.md)
+
+-----
+
+## Albums
+
+ - [*Around the World in a Day*](./songs/around-the-world-in-a-day-album.md)
+
+-----
+
+## Songs
+
+ - [Purple Rain](./albums/purple-rain-song.md)
 
 -----
 
