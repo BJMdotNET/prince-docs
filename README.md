@@ -43,7 +43,8 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
 ## Albums
 
- - [*Around the World in a Day*](./albums/around-the-world-in-a-day-album.md)
+ - [*Originals* (2019)](./albums/originals.md)
+ - [*Around the World in a Day* (1985)](./albums/around-the-world-in-a-day-album.md)
 
 -----
 
