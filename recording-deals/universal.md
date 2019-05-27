@@ -13,4 +13,14 @@
  
     > Universal Music Group won the licensing rights to late pop star Prince’s “vault” of unreleased music and other recordings, but people familiar with the matter said the company is concerned it didn’t get what it was promised in its contract.
  
- 
+-----
+
+https://variety.com/2017/music/news/prince-recorded-music-universal-music-group-warner-bros-records-1202031182/
+
+-----
+
+- [**"Prince Estate’s $31 Million Distribution Deal Is Rescinded"**](https://www.nytimes.com/2017/07/13/business/media/prince-estate-distribution-deal-rescinded.html) By Ben Sisario - New York Times - July 13, 2017
+
+   > Five months ago, the estate of Prince announced a major deal with the Universal Music Group for distribution rights for a substantial portion of the music star’s vast catalog. The largest of a series of multimillion-dollar contracts lined up in the months after Prince died, it was estimated at $31 million.
+   >
+   > But in a turn of events that has stunned the industry, the deal has now been rescinded by a judge, after Universal accused representatives of the estate of fraud and misrepresentation during negotiations and threatened a lawsuit if the company was not allowed to withdraw from the deal and get its money back.
