@@ -18,6 +18,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Bob Cavallo](./collaborations/bob-cavallo.md)
  - [Eddie Murphy](./collaborations/eddie-murphy.md)
  - [Lisa Coleman](./collaborations/lisa-coleman.md)
+ - [Lizzo](./collaborations/lizzo.md)
 
 -----
 
