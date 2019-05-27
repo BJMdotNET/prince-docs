@@ -69,3 +69,8 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
  - [Warner Bros. Records](./recording-deals/warner-bros.md)
  - [Sony Music Entertainment/Legacy Recordings](./recording-deals/legacy-recordings.md)
+ - [Universal (aborted 2017 deal)](./recording-deals/universal.md)
+ 
+-----
+
+## Movies inspired by Prince
