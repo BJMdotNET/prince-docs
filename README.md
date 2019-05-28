@@ -77,6 +77,6 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
  - [Universal Pictures: original film musical inspired by a number of classic Prince songs](./derivatives/film-musical-inspired-by-classic-prince-songs.md)
  - [Paramount Players Pic On The Day A Wyoming Hotel Maid Won A Dream Date With Prince](./derivatives/win-a-date-with-prince-movie.md)
- - [Wine Country](./collaborations/wine-country.md)
+ - [Wine Country](./derivatives/wine-country.md)
 
 
