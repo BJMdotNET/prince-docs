@@ -18,6 +18,18 @@ https://mixmag.net/read/princes-estate-is-releasing-originals-news
 
 -----
 
+- [**"Jay-Z and Tidal to Host Release Events for Prince’s ‘Originals’ Album"**](https://variety.com/2019/digital/news/jay-z-and-tidal-to-host-release-events-for-princes-originals-album-1203227567/) by JEM ASWAD - Variety - MAY 29, 2019
+
+    > Tidal has announced a series of listening events across the globe for members to experience the forthcoming album from Prince’s estate, “Originals.”
+    >
+    > [...]
+    >
+    > Album release celebrations will take place in the United States, Spain, Poland, Brazil and other countries across the globe. In the U.S., Tidal members will have the chance to attend an album release celebration in Los Angeles hosted by Jay-Z on June 6 — for more information, see Tidal.com/Prince.
+    >
+    > The release represents the conclusion of Tidal’s 2015 deal with Prince, which saw the platform become the exclusive streaming partner for the artist’s music; his music returned to all major platforms in 2017.
+
+-----
+
 Reports from the French listening session:
 
 - http://www.muziq.fr/originals-de-prince/
