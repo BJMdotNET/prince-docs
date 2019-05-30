@@ -1,7 +1,7 @@
 
 # Originals (2019)
 
- - **"xxxxxxx"** by xxxxxxxxxx - Classic Pop - June 2019:
+ - **"Prince Giving It All Away"** by John Earls - Classic Pop - June 2019 (Issue 53):
 
     > Last November, the Prince estate released his original version of **"Nothing Compares 2 U"** as a standalone single: the video, of Prince dancing in the studio, notched up eight million views almost immediately. Expanding the idea into a full album of the songs Prince wrote for others seemed an obvious move. As the archivist for Prince's estate, **Michael Howe** is the man responsible for cataloguing Prince's vast array of unreleased music. Working alongside the estate's entertainment advisor **Troy Carter** and creative director **Trevor Guy**, Michael compiled ***Originals***. "Prince was a creative titan," says Michael. "On *Originals*, you see his general ability — not just as a performer, but also in production, arranging, writing. We're focusing on songs that are particularly interesting, either because they were substantial hits for other artists and are relatively familiar, or it's a little less obvious and showcases another side of Prince's artistry unfamiliar to anybody bar the most ardent fans."
 	>
