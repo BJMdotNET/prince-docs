@@ -1,6 +1,14 @@
 
 # Originals (2019)
 
+ - **"xxxxxxx"** by xxxxxxxxxx - Classic Pop - June 2019:
+
+    > Last November, the Prince estate released his original version of **"Nothing Compares 2 U"** as a standalone single: the video, of Prince dancing in the studio, notched up eight million views almost immediately. Expanding the idea into a full album of the songs Prince wrote for others seemed an obvious move. As the archivist for Prince's estate, **Michael Howe** is the man responsible for cataloguing Prince's vast array of unreleased music. Working alongside the estate's entertainment advisor **Troy Carter** and creative director **Trevor Guy**, Michael compiled ***Originals***. "Prince was a creative titan," says Michael. "On *Originals*, you see his general ability — not just as a performer, but also in production, arranging, writing. We're focusing on songs that are particularly interesting, either because they were substantial hits for other artists and are relatively familiar, or it's a little less obvious and showcases another side of Prince's artistry unfamiliar to anybody bar the most ardent fans."
+	>
+	> Michael cites **"You're My Love"**, a lounge ballad written in 1982 for country icon **Kenny Rogers**, as a prime example of just how diverse Prince's talents were. "You're My Love is a very un-Prince-like proposition," Michael laughs. "But it's so interesting to hear him do something that's basically a Holiday Inn lounge vibe. It's a peek into an area of Prince's artistry most people probably didn't know even existed."
+
+-----
+
  - [**"Next Out of Prince’s Vaults: The Hits He Gave Away -- “Originals,” a collection of 15 demos for songs recorded by the Bangles, Kenny Rogers and Sinead O’Connor, is a rough draft of pop genius."**](https://www.nytimes.com/2019/05/29/arts/music/prince-originals-demo-album.html) By Gavin Edwards - New York Times - May 29, 2019
  
     > The theme of “Originals” was sparked by the discovery of Prince’s demo for “Nothing Compares 2 U,” released last year. Because Prince had “such a vast archive,” Carter said, they emphasized tracks that were completed — “we weren’t going to put out a rough vocal” — between 1981 and 1985.
@@ -20,6 +28,16 @@
     > “It was most unusual for him to give you a track that was incredibly personal to him,” Melvoin said. Prince had finished writing the song the night before they recorded it at Sunset Sound. It was inspired both by issues in his relationship with Melvoin and the absence of his personal assistant, Sandy Scipioni, who was taking time off because of the death of her father.
     > 
     > “I had left, and Sandy had left,” Melvoin said. “He was so sensitive to longing and need, if you were his lover and he loved you and you weren’t there, it would compel him to go into the studio because that was the only way he could service those emotions.”
+	
+-----
+
+ - [**"Jay Z and Tidal highlight Prince with album celebrations"**](https://edition.cnn.com/2019/05/29/entertainment/prince-jay-tidal-album/index.html) By Lisa Respers France - CNN - May 29, 2019
+
+    > Tidal is going big with the new Prince album.
+    > 
+    > The streaming platform has announced a series of listening events across the globe for members to experience the late singer's album, "Originals."
+    > 
+    > Album release celebrations will be held in various countries, including the United States, Spain, Poland and Brazil.
 
 -----
 
