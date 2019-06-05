@@ -38,15 +38,13 @@
 
 ---
 
- - [***Diamonds and Curlz: 29 Years Rolling With Rock Royalty Prince***](http://diamondsncurlz.com/) by **Kim Berry**, 16 April 2019, KimBOnSet Publishing (i.e. self-published).
- 
-    - [**"Prince's Hairstylist of 29 Years (Kim Berry) to Release Memoir on April 16"**](https://eurweb.com/2019/03/princes-hairstylist-of-29-years-kim-berry-to-release-memoir-on-april-16/) by Fisher Jack on 25 March 2019 (EURweb)
-    
-       > The elite LA based celebrity hairstylist is excited to add “Author” to her long list of accomplishments. Taking a page from Prince’s playbook, the new memoir was conceptualized, written and self-published by Berry (KimBOnSet Publishing). Through fabulously told personal accounts of tour life experiences and other shared moments with Prince, Berry brings this labor of love to the masses. A captivating, heartfelt recollection of her journey alongside one of music’s most prolific artists. Berry’s desire for the book is to serve as a healing agent for peace to all who have never truly received closure after his death, nearly three years later.
-    
----
-
  - [***Prince & the 1980s Reagan Age: Race, Gender, Sexuality, Class, Nation, & Popular Music's Transnational Routes***](_URL_) by **Aaron Lefkovitz** - 30 January 2019 - [Peter Lang Inc., International Academic Publishers](https://www.peterlang.com/)
+ 
+    > ISBN: 9781433161414
+    >
+    > http://d-nb.info/1166251608
+    
+    I've seen a 30 June 2019 release date for this on Amazon Japan, as well as a "2020" one on d-nb.info .
 
 ---
 
@@ -55,6 +53,14 @@
 ---
 
 ## Already available
+
+ - [***Diamonds and Curlz: 29 Years Rolling With Rock Royalty Prince***](http://diamondsncurlz.com/) by **Kim Berry**, 16 April 2019, KimBOnSet Publishing (i.e. self-published).
+ 
+    - [**"Prince's Hairstylist of 29 Years (Kim Berry) to Release Memoir on April 16"**](https://eurweb.com/2019/03/princes-hairstylist-of-29-years-kim-berry-to-release-memoir-on-april-16/) by Fisher Jack on 25 March 2019 (EURweb)
+    
+       > The elite LA based celebrity hairstylist is excited to add “Author” to her long list of accomplishments. Taking a page from Prince’s playbook, the new memoir was conceptualized, written and self-published by Berry (KimBOnSet Publishing). Through fabulously told personal accounts of tour life experiences and other shared moments with Prince, Berry brings this labor of love to the masses. A captivating, heartfelt recollection of her journey alongside one of music’s most prolific artists. Berry’s desire for the book is to serve as a healing agent for peace to all who have never truly received closure after his death, nearly three years later.
+    
+---
 
  - [***Prince: The Last Interview***](https://www.mhpbooks.com/books/prince-the-last-interview/) by Prince, introduction by Hanif Abdurraqib, 12 March 2019, Melville House Books 
 
