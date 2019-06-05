@@ -62,6 +62,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Minnesota Spokesman-Recorder](./lists/spokesman-recorder.md)
  - [City Pages](./lists/city-pages.md)
  - [TwinCities.com - Pioneer Press](./lists/twincities.md)
+ - [Minneapolis / St. Paul Business Journal](./lists/business-journal.md)
  
 -----
 
