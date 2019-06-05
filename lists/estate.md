@@ -11,3 +11,6 @@
 
     > It has now been almost three years since the world lost the musical genius, legend and icon known as Prince, but his estimated $200 million estate remains mired in all kinds of drama, with his heirs yet to see one dime.
  
+-----
+
+[Home](./)
