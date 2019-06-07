@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://www.latimes.com/entertainment/music/la-et-ms-prince-originals-covers-album-20190607-story.html
+
+-----
+
 https://nypost.com/2019/06/06/princes-originals-review-nothing-compares-2-new/
 
 -----
