@@ -1,17 +1,21 @@
 
 # Originals (2019)
 
+https://variety.com/2019/music/news/prince-birthday-remembered-by-three-key-women-originals-1203235532/
+
+----
+
 https://www.latimes.com/entertainment/music/la-et-ms-prince-originals-covers-album-20190607-story.html
 
------
+----
 
 https://nypost.com/2019/06/06/princes-originals-review-nothing-compares-2-new/
 
------
+----
 
 https://pitchfork.com/reviews/albums/prince-originals/
 
-------
+----
 
  - **"Prince Giving It All Away"** by John Earls - Classic Pop - June 2019 (Issue 53):
 
@@ -23,7 +27,7 @@ https://pitchfork.com/reviews/albums/prince-originals/
     > 
 	> There is a plan for further posthumous Prince releases over the next "three-to-five years", which can be changed if Michael finds anything in the interim that simply can't wait. Prince said he expected his unreleased material to emerge after his death, but didn't leave detailed instructions as to how it should appear. "You can never answer the question fully," Michael admits. "We knew Prince pretty well, for what we think would be appropriate. He was a single-minded guy with a clear vision of his artistry. At the top of our list is 'Is this the calibre of what Prince would want in the marketplace? Would he approve of this if he were here?' We hope we're doing the right thing." The songs on Originals wouldn't fit on Prince's albums from the era. Yet it also sounds like a lost Prince album from 1984. The vault seems in safe hands.
 
------
+----
 
  - [**"Next Out of Prince’s Vaults: The Hits He Gave Away -- “Originals,” a collection of 15 demos for songs recorded by the Bangles, Kenny Rogers and Sinead O’Connor, is a rough draft of pop genius."**](https://www.nytimes.com/2019/05/29/arts/music/prince-originals-demo-album.html) By Gavin Edwards - New York Times - May 29, 2019
  
@@ -45,7 +49,7 @@ https://pitchfork.com/reviews/albums/prince-originals/
     > 
     > “I had left, and Sandy had left,” Melvoin said. “He was so sensitive to longing and need, if you were his lover and he loved you and you weren’t there, it would compel him to go into the studio because that was the only way he could service those emotions.”
 	
------
+----
 
  - [**"Jay Z and Tidal highlight Prince with album celebrations"**](https://edition.cnn.com/2019/05/29/entertainment/prince-jay-tidal-album/index.html) By Lisa Respers France - CNN - May 29, 2019
 
@@ -55,7 +59,7 @@ https://pitchfork.com/reviews/albums/prince-originals/
     > 
     > Album release celebrations will be held in various countries, including the United States, Spain, Poland and Brazil.
 
------
+----
 
 https://variety.com/2019/music/news/prince-estate-to-release-originals-album-songs-he-gave-to-other-artists-1203197451/
 
@@ -72,7 +76,7 @@ https://consequenceofsound.net/2019/04/prince-originals-demos-album/
 
 https://mixmag.net/read/princes-estate-is-releasing-originals-news
 
------
+----
 
 - [**"Jay-Z and Tidal to Host Release Events for Prince’s ‘Originals’ Album"**](https://variety.com/2019/digital/news/jay-z-and-tidal-to-host-release-events-for-princes-originals-album-1203227567/) by JEM ASWAD - Variety - MAY 29, 2019
 
@@ -84,7 +88,7 @@ https://mixmag.net/read/princes-estate-is-releasing-originals-news
     >
     > The release represents the conclusion of Tidal’s 2015 deal with Prince, which saw the platform become the exclusive streaming partner for the artist’s music; his music returned to all major platforms in 2017.
 
------
+----
 
 Reports from the French listening session:
 
