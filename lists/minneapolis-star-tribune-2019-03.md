@@ -14,9 +14,17 @@ Links to articles in Prince's hometown paper:
 
 -----
 
- - [**"Former Prince guitarist Donna Grantis celebrates new jazz-rock album at the Dakota"**](http://www.startribune.com/former-prince-guitarist-donna-grantis-celebrates-new-jazz-rock-album-at-the-dakota/507678332/) by Jon Bream - 26 March 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/former-prince-guitarist-donna-grantis-celebrates-new-jazz-rock-album-at-the-dakota/507678332/))
+ - [**"Former Prince guitarist Donna Grantis celebrates new jazz-rock album at the Dakota -- 3rdEyeGirl guitarist Donna Grantis will celebrate her new jazz-rock fusion album in Minneapolis."**](http://www.startribune.com/former-prince-guitarist-donna-grantis-celebrates-new-jazz-rock-album-at-the-dakota/507678332/) by Jon Bream - 26 March 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/former-prince-guitarist-donna-grantis-celebrates-new-jazz-rock-album-at-the-dakota/507678332/))
 
+    > The Dakota is where Grantis’ quintet made its debut in August 2017 and where she made her Twin Cities debut in January 2013 in Prince’s 3rdEyeGirl.
+    > 
     > Grantis’ own combo delivers new millennium instrumental jazz-rock fusion, sort of like Jeff Beck meets a postmodern Mahavishnu Orchestra. The ensemble travels down eight different lanes of the fusion superhighway in Hendrixian crosstown traffic, all with an exotic East Indian undertone thanks to tabla player Suphala.
+
+-----
+
+ - [**"Prince protégée Donna Grantis elaborates on the titles for new 'Diamonds & Dynamite' album"**](http://www.startribune.com/prince-protge-donna-grantis-elaborates-on-the-titles-for-new-diamonds-amp-dynamite-album/507678302/) by Jon Bream - 26 March 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-protge-donna-grantis-elaborates-on-the-titles-for-new-diamonds-amp-dynamite-album/507678302/))
+
+    > There are no lyrics but every one of Donna Grantis’ song titles has a story. She explains a few of them.
 
 -----
 
