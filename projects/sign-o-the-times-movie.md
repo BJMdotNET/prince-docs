@@ -1,6 +1,13 @@
 
 # Sign O' the Times - the movie
 
+
+https://twitter.com/CalumWaddell/status/1137096512692002819
+
+https://www.facebook.com/turbinemedien/videos/682727452168690/
+
+----
+
 From **"Times Lapse"** by **Calum Waddell** in the News pages of the [April 2019 issue](https://recordcollectormag.com/issue-detail/491) of UK magazine [***Record Collector***](https://recordcollectormag.com/) (issue no. 491), page 13. 
 
 > Unearthed Prince songs and new feature-length documentary on the late artist's *Sign O' the Times* concert film.
