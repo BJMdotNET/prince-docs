@@ -2,6 +2,18 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Sometimes he dreamed his songs: A portrait of Prince in the recording studio -- "You had to be ready at any time for anything that inspired him," says his L.A. engineer, who dishes on a new album of songs Prince wrote for other artists."**](http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/) by Jon Bream - 6 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/))
+
+    > When Prince showed up at his favorite Los Angeles recording studio, engineer Peggy McCreary never knew what was going to happen.
+    > 
+    > “It wasn’t like you could ask him,” she recalled. “He was very quiet. I got in his face: ‘You’re gonna have to talk to me. I can’t work if you’re just going to mumble instructions.’”
+    > 
+    > They worked together for six years, beginning in 1981, at Sunset Sound, recording “Controversy,” “1999,” “Purple Rain” and other projects.
+    > 
+    > That’s where he cut many of the tracks on “Originals,” a new posthumous album featuring his versions of songs he wrote for others. It is being released Friday, on what would have been his 61st birthday, by the Tidal streaming service (it will be available elsewhere June 21).
+
+-----
+
  - [**"Twin Cities concerts of the week: Vampire Weekend, Luis Miguel, New Kids on the Block, Billie Eilish"**](http://www.startribune.com/twin-cities-concerts-of-the-week-vampire-weekend-luis-miguel-new-kids-on-the-block-billie-eilish/510910832/) by Chris Riemenschneider and Jon Bream - 6 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/twin-cities-concerts-of-the-week-vampire-weekend-luis-miguel-new-kids-on-the-block-billie-eilish/510910832/))
 
     > Mazarati: With "100 MPH," the tune Prince wrote for them, appearing on his just-released "Originals" album, it seems like an opportune time for Terry Casey and the mid-'80s Minneapolis rockin' funkateers, under the tutelage of producer Brown Mark, to reunite for the first time in 10 years. It's on the Purple One's birthday, no less. Will they do "Kiss," which was originally intended for them? Brown Mark and Micki Free are scheduled to appear as well. (9 p.m. Fri., Muse, Mpls., $28-$80.)
@@ -11,6 +23,14 @@ Links to articles in Prince's hometown paper:
     > [...]
     > 
     > Maceo Parker: The longtime James Brown saxophonist and sometime sideman to George Clinton and Prince always brings the funk, adding a special Purple touch when he comes to town. His performance with special guest Candy Dulfer was a treat last year at the PRN Alumni Foundation fundraiser. (7 & 9 p.m. Tue., Dakota, $25-$50)
+
+-----
+
+ - [**"Celebrate Prince's birthday with a dinner in his honor -- The Onyx Culinary Collective is presenting a Prince-inspired meal with vegan and purple foods at the Bird in Minneapolis."**](http://www.startribune.com/celebrate-prince-s-birthday-with-a-dinner-in-his-honor-at-the-bird-in-minneapolis/510867202/) by Lee Svitak Dean - 5 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/celebrate-prince-s-birthday-with-a-dinner-in-his-honor-at-the-bird-in-minneapolis/510867202/))
+
+    > Prince would have celebrated his 61st birthday on June 7, so what better reason to put on a party?
+    > 
+    > The Onyx Culinary Collective is presenting a meal in his honor on — what else — his birth date, which is Friday. The event takes place at the Bird (1612 Harmon Place, Mpls., 612-767-9495, thebirdmpls.rocks) with two seatings: at 5:30 and 7:30 p.m. A dance party will follow the last seating; singer Mina Moore will perform Prince songs during each meal.
 
 -----
 
