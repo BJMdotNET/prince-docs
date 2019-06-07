@@ -1,6 +1,10 @@
 
 # Mr. Nelson: On The North Side (documentary)
 
+https://weheartmusic.typepad.com/blog/2019/06/weheartmovies-mr-nelson-on-the-northside-prince-documentary-advance-screening.html
+
+------
+
 This documentary was first reported on in October 2018 by Stewart Clarke in Variety: [**"Chaka Khan and Prince Feature Documentaries Launching at AFM"**](https://variety.com/2018/film/news/chaka-khan-prince-documentaries-launch-afm-1203006870/)
 
  > Feature documentaries about Chaka Khan and Prince are on Kew Media Distribution’s slate for the AFM. Kew is building a profile in music documentaries, launching “Chuck Berry” at Mipcom and recently sealing deals with Showtime and Sky for “Teddy Pendergrass – If You Don’t Know Me.”
