@@ -2,6 +2,24 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"For the love of Prince, why won’t anyone take the last piece of food?"**](http://www.startribune.com/why-won-t-anyone-take-the-last-piece-of-food/510139261/) By John Reinan - JUNE 7, 2019
+ 
+    > That experience led Fordice to ask Curious Minnesota: Why won’t anyone take the last piece?
+    > 
+    > It comes down to basic politeness, said Estelle Thielen of Eagan, who would never dream of taking the last piece.
+    > 
+    > “It’s Minnesota Nice,” she said. “If you take the last piece, nobody else can have any.”
+	>
+	> [...]
+	>
+	> Our favorite explanation is one that’s not likely.
+	> 
+	> But it’s lovely.
+	> 
+	> It came from an anonymous Twitter user, who simply said, “We leave the last piece for Prince.”
+ 
+----
+
  - [**"Sometimes he dreamed his songs: A portrait of Prince in the recording studio -- "You had to be ready at any time for anything that inspired him," says his L.A. engineer, who dishes on a new album of songs Prince wrote for other artists."**](http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/) by Jon Bream - 6 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/))
 
     > When Prince showed up at his favorite Los Angeles recording studio, engineer Peggy McCreary never knew what was going to happen.
