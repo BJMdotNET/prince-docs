@@ -19,6 +19,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Eddie Murphy](./collaborations/eddie-murphy.md)
  - [Lisa Coleman](./collaborations/lisa-coleman.md)
  - [Lizzo](./collaborations/lizzo.md)
+ - [Karl Hyde (Underworld)](./collaborations/karl-hyde-underworld.md)
 
 -----
 
