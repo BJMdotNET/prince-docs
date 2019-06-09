@@ -1,6 +1,14 @@
 
 # City Pages
 
+ - [**"Prince’s new vault release, ‘Originals’: A track-by-track guide"**](http://citypages.com/music/princes-new-vault-release-originals-a-track-by-track-guide/510930671) by Mike Duquette - 7 June 2019
+ 
+    > The premise is simple: 15 songs from Prince’s expanded universe, which he wrote and performed to give to acts he was producing (the Time, Vanity 6, Sheila E.) or just ones he liked (the Bangles, Kenny Rogers). Most of the released versions retained nearly all of Prince’s intricately built backing tracks, making Minneapolis’ distinctive synth-funk sound that much more indelible throughout the ‘80s. But Originals also showcases the breadth of Prince’s musical tastes, dabbling in pure pop as often as straightforward R&B, and even one country-ready tune. (It also showcases Prince’s most prolific period for the digital age: Six of these songs are not available on Apple Music or Spotify, as originally recorded.)
+    > 
+    > With Originals streaming on TIDAL this week and heading to CD and all digital channels on June 21, now’s a good time to revisit the tracks as we first heard them.
+
+----
+
  - [**"'Prince 'hurt me to my soul': Jesse Johnson kicks off Celebration 2019 with emotional onstage interview"**](http://www.citypages.com/music/prince-hurt-me-to-my-soul-jesse-johnson-kicks-off-celebration-2019-with-emotional-onstage-interview/509097851) By Keith Harris -- 26 April 2019
  
     > In an onstage interview with Andrea Swensson of the Current, former Time guitarist Jesse Johnson spoke extensively and frankly about his difficult relationship with Prince.
