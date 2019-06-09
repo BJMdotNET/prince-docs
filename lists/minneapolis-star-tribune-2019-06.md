@@ -9,14 +9,14 @@ Links to articles in Prince's hometown paper:
     > It comes down to basic politeness, said Estelle Thielen of Eagan, who would never dream of taking the last piece.
     > 
     > “It’s Minnesota Nice,” she said. “If you take the last piece, nobody else can have any.”
-	>
-	> [...]
-	>
-	> Our favorite explanation is one that’s not likely.
-	> 
-	> But it’s lovely.
-	> 
-	> It came from an anonymous Twitter user, who simply said, “We leave the last piece for Prince.”
+    >
+    > [...]
+    >
+    > Our favorite explanation is one that’s not likely.
+    > 
+    > But it’s lovely.
+    > 
+    > It came from an anonymous Twitter user, who simply said, “We leave the last piece for Prince.”
  
 ----
 
