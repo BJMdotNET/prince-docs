@@ -1,6 +1,14 @@
 
 # Originals (2019)
 
+https://themuse.jezebel.com/princes-originals-captures-a-genius-at-work-and-an-arti-1835379614
+
+----
+
+http://www.writteninmusic.com/pop/prince-originals/
+
+----
+
 https://www.nme.com/blogs/11-things-we-learned-at-playback-new-prince-album-2506506
 
 ----
