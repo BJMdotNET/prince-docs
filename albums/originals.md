@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://www.nme.com/blogs/11-things-we-learned-at-playback-new-prince-album-2506506
+
+----
+
 https://variety.com/2019/music/news/prince-birthday-remembered-by-three-key-women-originals-1203235532/
 
 ----
