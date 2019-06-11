@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://slate.com/culture/2019/06/prince-originals-album-review-nothing-compares-2-u.html
+
+----
+
 https://themuse.jezebel.com/princes-originals-captures-a-genius-at-work-and-an-arti-1835379614
 
 ----
