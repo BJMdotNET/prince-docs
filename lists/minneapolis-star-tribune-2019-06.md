@@ -18,9 +18,9 @@ Links to articles in Prince's hometown paper:
     > 
     > It came from an anonymous Twitter user, who simply said, “We leave the last piece for Prince.”
 
------
+----
 
- - [**"Sometimes he dreamed his songs: A portrait of Prince in the recording studio -- "You had to be ready at any time for anything that inspired him," says his L.A. engineer, who dishes on a new album of songs Prince wrote for other artists."**](http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/) by Jon Bream - 6 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/))
+ - [**"Sometimes he dreamed his songs: A portrait of Prince in the recording studio -- “You had to be ready at any time for anything that inspired him,” says his L.A. engineer, who dishes on a new album of songs Prince wrote for other artists."**](http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/) by Jon Bream - 6 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/sometimes-he-dreamed-his-songs-a-portrait-of-prince-in-the-recording-studio/510918872/))
 
     > When Prince showed up at his favorite Los Angeles recording studio, engineer Peggy McCreary never knew what was going to happen.
     > 
@@ -30,19 +30,19 @@ Links to articles in Prince's hometown paper:
     > 
     > That’s where he cut many of the tracks on “Originals,” a new posthumous album featuring his versions of songs he wrote for others. It is being released Friday, on what would have been his 61st birthday, by the Tidal streaming service (it will be available elsewhere June 21).
 
------
+----
 
  - [**"Twin Cities concerts of the week: Vampire Weekend, Luis Miguel, New Kids on the Block, Billie Eilish"**](http://www.startribune.com/twin-cities-concerts-of-the-week-vampire-weekend-luis-miguel-new-kids-on-the-block-billie-eilish/510910832/) by Chris Riemenschneider and Jon Bream - 6 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/twin-cities-concerts-of-the-week-vampire-weekend-luis-miguel-new-kids-on-the-block-billie-eilish/510910832/))
 
-    > Mazarati: With "100 MPH," the tune Prince wrote for them, appearing on his just-released "Originals" album, it seems like an opportune time for Terry Casey and the mid-'80s Minneapolis rockin' funkateers, under the tutelage of producer Brown Mark, to reunite for the first time in 10 years. It's on the Purple One's birthday, no less. Will they do "Kiss," which was originally intended for them? Brown Mark and Micki Free are scheduled to appear as well. (9 p.m. Fri., Muse, Mpls., $28-$80.)
+    > Mazarati: With “100 MPH,” the tune Prince wrote for them, appearing on his just-released “Originals” album, it seems like an opportune time for Terry Casey and the mid-'80s Minneapolis rockin' funkateers, under the tutelage of producer Brown Mark, to reunite for the first time in 10 years. It's on the Purple One's birthday, no less. Will they do “Kiss,” which was originally intended for them? Brown Mark and Micki Free are scheduled to appear as well. (9 p.m. Fri., Muse, Mpls., $28-$80.)
     > 
-    > Ingrid Chavez: A Prince protégé going back to the "Lovesexy" album who later starred opposite him in the movie "Graffiti Bridge" she's hitting Prince's favorite local record shop to perform and sign her personal and poetic new album, "Memories of Flying." (7 p.m. Fri., Electric Fetus, Mpls., free.)
+    > Ingrid Chavez: A Prince protégé going back to the “Lovesexy” album who later starred opposite him in the movie “Graffiti Bridge” she's hitting Prince's favorite local record shop to perform and sign her personal and poetic new album, “Memories of Flying.” (7 p.m. Fri., Electric Fetus, Mpls., free.)
     > 
     > [...]
     > 
     > Maceo Parker: The longtime James Brown saxophonist and sometime sideman to George Clinton and Prince always brings the funk, adding a special Purple touch when he comes to town. His performance with special guest Candy Dulfer was a treat last year at the PRN Alumni Foundation fundraiser. (7 & 9 p.m. Tue., Dakota, $25-$50)
 
------
+----
 
  - [**"Celebrate Prince's birthday with a dinner in his honor -- The Onyx Culinary Collective is presenting a Prince-inspired meal with vegan and purple foods at the Bird in Minneapolis."**](http://www.startribune.com/celebrate-prince-s-birthday-with-a-dinner-in-his-honor-at-the-bird-in-minneapolis/510867202/) by Lee Svitak Dean - 5 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/celebrate-prince-s-birthday-with-a-dinner-in-his-honor-at-the-bird-in-minneapolis/510867202/))
 
@@ -50,7 +50,7 @@ Links to articles in Prince's hometown paper:
     > 
     > The Onyx Culinary Collective is presenting a meal in his honor on — what else — his birth date, which is Friday. The event takes place at the Bird (1612 Harmon Place, Mpls., 612-767-9495, thebirdmpls.rocks) with two seatings: at 5:30 and 7:30 p.m. A dance party will follow the last seating; singer Mina Moore will perform Prince songs during each meal.
 
------
+----
 
  - [**"Remembering when Prince wrote that song for you"**](http://www.startribune.com/remembering-when-prince-wrote-that-song-for-you/510818462/) by MESFIN FEKADU (Associated Press) - 4 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/remembering-when-prince-wrote-that-song-for-you/510818462/))
 
@@ -66,7 +66,7 @@ Links to articles in Prince's hometown paper:
     > 
     > In interviews with the AP, Hoffs, Apollonia Kotero, Susannah Melvoin and Taja Sevelle explain the magic behind the songs Prince wrote for them years ago.
 
------
+----
 
  - [**"TV picks for June 1-2: Prince, 'Perpetual Grace LTD,' 'The Weekly'"**](http://www.startribune.com/tv-picks-for-june-1-2-prince-perpetual-grace-ltd-the-weekly/510669062/) by Neal Justin - 4 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/tv-picks-for-june-1-2-prince-perpetual-grace-ltd-the-weekly/510669062/))
 
@@ -74,6 +74,6 @@ Links to articles in Prince's hometown paper:
     > 
     > Twin Cities Public Television has been putting an emphasis on Minnesota’s musical past recently, with rich rewards for those who want to party like it’s 1999. Its latest archaeological dig has turned up “Rave Un2 the Year 2000,” Prince’s legendary New Year’s concert from Paisley Park with timeless hits and fan favorites like “Nothing Compares 2 U.”
 
------
+----
 
 [Home](./)
