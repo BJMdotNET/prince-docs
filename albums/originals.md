@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://pitchfork.com/thepitch/prince-engineer-peggy-mccreary-interview-originals/
+
+----
+
 https://slate.com/culture/2019/06/prince-originals-album-review-nothing-compares-2-u.html
 
 ----
