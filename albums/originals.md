@@ -3,6 +3,8 @@
 
 http://mixdownmag.com.au/engineering-prince-dive-archives
 
+https://wordsbywatts.com.au/2019/06/07/interview-peggy-mccreary-on-recording-prince/
+
 ----
 
 https://www.nme.com/reviews/album/prince-prince-originals-review
