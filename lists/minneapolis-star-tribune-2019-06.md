@@ -2,6 +2,14 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Prince rules collector site Discogs' '100 Most Expensive Records' list"**](http://www.startribune.com/prince-rules-collector-site-discogs-100-most-expensive-records-list/511122062/) by Chris Riemenschneider - 11 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-rules-collector-site-discogs-100-most-expensive-records-list/511122062/))
+
+    > Record geeks love Prince and his unconventional release methods. That was made obvious again by the predominant album-collectors website Discogs, which just issued a new list Monday of the “Top 100 Most Expensive Records,” culled from its 14 years in the business of buying and selling rare music items.
+    > 
+    > Prince's infamously shelved “Black Album” appears three times in the top 100, including the top spot, after a diehard fan of the late Minneapolis icon paid $15,000 for a 1987 promo version of the LP via the website. That's more than twice the price paid for the next-highest record on the list, a 78-rpm shellac record on the Vocalion label by blues pioneer Charley Patton.
+
+----
+
  - [**"For the love of Prince, why won’t anyone take the last piece of food?"**](http://www.startribune.com/why-won-t-anyone-take-the-last-piece-of-food/510139261/) by John Reinan - 7 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/why-won-t-anyone-take-the-last-piece-of-food/510139261/))
 
     > That experience led Fordice to ask Curious Minnesota: Why won’t anyone take the last piece?

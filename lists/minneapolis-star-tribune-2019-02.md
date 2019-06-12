@@ -8,7 +8,7 @@ Links to articles in Prince's hometown paper:
     > 
     > She recalled it for two good reasons: She had just given birth to her daughter about 10 days earlier and she got to hang out at Paisley Park with Prince.
 
------
+----
 
  - [**"The Latest: Klobuchar points to Prince in talking drug issue"**](http://www.startribune.com/the-latest-klobuchar-points-to-prince-in-talking-drug-issue/506023432/) by The Associated Press - 18 February 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/the-latest-klobuchar-points-to-prince-in-talking-drug-issue/506023432/))
 
@@ -16,6 +16,6 @@ Links to articles in Prince's hometown paper:
     > 
     > The Democratic presidential hopeful spoke Monday night at a CNN town hall in New Hampshire. She says her state still hasn't gotten over the 2016 death of Prince, one of Minnesota's most famous residents. He died of an accidental fentanyl overdose.
 
------
+----
 
 [Home](./)

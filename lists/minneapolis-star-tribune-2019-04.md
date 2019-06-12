@@ -14,13 +14,13 @@ Links to articles in Prince's hometown paper:
     > 
     > “So much of our history was made behind these walls. We would like to thank Prince, First Avenue and all of our fans around the world for the love and support.”
 
------
+----
 
  - [**"With Prince on a big screen, fans party like it's 2009 at the Armory -- It was the second annual posthumous concert featuring live musicians accompanying a video of Prince performing."**](http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/) by Jon Bream - 27 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/with-prince-on-a-big-screen-fans-party-like-it-s-2009-at-the-armory/509152322/))
 
     > On Friday, the Big Screen show was reprised at the Armory in Minneapolis. The revamped fortress with its wonderfully upgraded acoustics is half the size of the Timberwolves’ arena. And, as was the case last year, the place was only half full, with about 3,000 people.
 
------
+----
 
  - [**"Coming soon from the Prince vault: A new album called 'Originals' -- Prince's estate is announcing the collection of his performances of songs he wrote for others."**](http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/) by Jon Bream and Chris Riemenschneider - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/coming-soon-from-the-prince-vault-a-new-album-called-originals/509009862/))
 
@@ -38,7 +38,7 @@ Links to articles in Prince's hometown paper:
     > 
     > Apple Music documentary: A British film crew has been working on a documentary about Prince’s legendary First Avenue concert on Aug. 3, 1983, the night he not only debuted the songs for “Purple Rain” but recorded them for the film’s soundtrack. (Three tracks captured live are heard on the final album.) It was also the night 19-year-old Wendy Melvoin made her debut as the Revolution’s guitarist. Due: unknown.
 
------
+----
 
  - [**"New Prince album featuring unreleased demos out in June"**](http://www.startribune.com/new-prince-album-featuring-unreleased-demos-out-in-june/509058902/) by The Associated Press - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/new-prince-album-featuring-unreleased-demos-out-in-june/509058902/))
 
@@ -46,7 +46,7 @@ Links to articles in Prince's hometown paper:
     > 
     > The 15-track “Originals” will include “Nothing Compares 2 U,” the No. 1 hit for Sinéad O'Connor; “The Glamorous Life,” Sheila E.'s signature song and Top 10 pop hit; and Kenny Rogers' “You're My Love,” which Prince wrote under the name Joey Coco in 1986.
 
------
+----
 
  - [**"Third annual Prince commemoration at Paisley Park features emotional ups and downs -- For a third year, fans gather to celebrate and remember the artist."**](http://www.startribune.com/third-annual-prince-commemoration-at-paisley-park-features-emotional-ups-and-downs/509087732/) by Jon Bream - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/third-annual-prince-commemoration-at-paisley-park-features-emotional-ups-and-downs/509087732/))
 
@@ -56,7 +56,7 @@ Links to articles in Prince's hometown paper:
     > 
     > On Thursday, Johnson turned an interview session at Paisley into a 45-minute confessional monologue. A little wacky, a little humorous and totally heartfelt.
 
------
+----
 
  - [**"Twin Cities concerts of the week: Snoop Dogg, Chris Koza, VocalEssence does Dylan, Prince tributes -- This week's big gigs for April 26-May 2, also including Neko Case, Kodak Black, Arturo Sandoval, Foals and more."**](http://www.startribune.com/twin-cities-concerts-of-the-week-snoop-dogg-chris-koza-vocalessence-does-dylan-prince-tributes/509061512/) by Jon Bream and Chris Riemenschneider - 25 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/twin-cities-concerts-of-the-week-snoop-dogg-chris-koza-vocalessence-does-dylan-prince-tributes/509061512/))
 
@@ -68,11 +68,11 @@ Links to articles in Prince's hometown paper:
     > 
     > Love 2 the 9's: With all the high-profile hubbub of Prince Week, here's a chill Purple happening. NPG keyboardist Tommy Barbarella will accompany Twin Cities vocalist Julius Collins, a veteran of Greazy Meal and various theater productions, in an intimate evening of Prince music. Collins has fronted a bunch of NPG alums (including Michael Bland, Sonny Thompson and Barbarella) for full-band Prince tribute shows. (11 p.m. Sat., Parkway Theater, $55-$129, theparkwaytheater.com)
 
------
+----
 
  - [**"Paisley Park tours draw celebs, including Katy Perry, Bruno Mars and Shania Twain -- Green Day's frontman brought his family. And Katy Perry made a return visit incognito, just like any other fan."**](http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/) by Chris Riemenschneider - 24 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/paisley-park-tours-draw-celebs-including-katy-perry-bruno-mars-and-shania-twain/509009942/))
 
------
+----
 
  - [**"David Bourn, projectionist who lit up the skies and put Prince in the spotlight, dies at 77"**](http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/) by Richard Chin - 23 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/david-bourn-projectionist-who-lit-up-the-skies-and-put-prince-in-the-spotlight-dies-at-77/508966712/))
 
@@ -80,7 +80,7 @@ Links to articles in Prince's hometown paper:
     > 
     > When scenes from the 1984 film “Purple Rain” were shot at First Avenue, two of Bourn’s spotlights were used to shine on Prince. Bourn operated one, his son Brian ran the other.
 
------
+----
 
  - [**"C.J.: Prince protégée Ashley Támar Davis performed with pre-Destiny Beyoncé"**](http://www.startribune.com/c-j-the-fame-of-destiny-s-child-almost-broke-singer-ashley-tamar-davis/508902862/) by C.J. - 22 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/c-j-the-fame-of-destiny-s-child-almost-broke-singer-ashley-tamar-davis/508902862/))
 
@@ -92,7 +92,7 @@ Links to articles in Prince's hometown paper:
     > 
     > “I didn’t officially work with him until 2005. I elaborate on all the stories in detail in my memoir. The book was written seven years ago. I was approached [by] a boutique publisher in Houston, and I just didn’t feel the time was right to put it out. But it’s completed, and when he passed, I had to edit it.
 
------
+----
 
  - [**"Prince memoir 'The Beautiful Ones' coming out in the fall"**](http://www.startribune.com/prince-memoir-the-beautiful-ones-coming-out-in-the-fall/508886482/) by Hillel Italie (Associated Press) - 22 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-memoir-the-beautiful-ones-coming-out-in-the-fall/508886482/))
 
@@ -100,7 +100,7 @@ Links to articles in Prince's hometown paper:
     > 
     > Random House confirmed Monday to The Associated Press that “The Beautiful Ones” will combine a Prince unfinished manuscript with rare photos, scrapbooks and lyrics. First announced just weeks before his 2016 death, the 288-page book will include an introduction by Dan Piepenbring, whom Prince had chosen as a collaborator. The memoir is an exclusive partnership with the Prince Estate.
 
------
+----
 
  - [**"Prince's memoir 'The Beautiful Ones' will finally be published this fall"**](http://www.startribune.com/prince-s-memoir-the-beautiful-ones-will-finally-be-published-this-fall/508894482/) by Jon Bream - 22 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-s-memoir-the-beautiful-ones-will-finally-be-published-this-fall/508894482/))
 
@@ -112,7 +112,7 @@ Links to articles in Prince's hometown paper:
     > 
     > That promise, like so many things in the posthumous Prince world, proved not to be true.
 
------
+----
 
  - [**"Prince's greatest talent? Self-confidence, says the manager who landed 'Purple Rain' -- Bob Cavallo recounts some of the tales he'll tell at Paisley Park for the third annual Celebration."**](http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/) by Jon Bream - 20 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-s-greatest-talent-self-confidence-says-the-manager-who-landed-purple-rain/508774052/))
 
@@ -120,7 +120,7 @@ Links to articles in Prince's hometown paper:
     > 
     > He and Prince had a falling-out before the star’s third movie, 1990’s “Graffiti Bridge.” Cavallo went on to start another management firm (its clients included Green Day, Seal and Alanis Morissette), and produce such movies as “City of Angels” and “12 Monkeys.” In 1998, he took over Disney’s music division, working with everyone from Miley Cyrus to the Plain White T’s.
 
------
+----
 
  - [**"In first night here, Dave Chappelle thanks Minnesota for sending 'wild' politicians to D.C."**](http://www.startribune.com/in-first-night-here-dave-chappelle-thanks-minnesota-for-sending-wild-politicians-to-d-c/508592742/) by Neal Justin - 15 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/in-first-night-here-dave-chappelle-thanks-minnesota-for-sending-wild-politicians-to-d-c/508592742/))
 
@@ -138,7 +138,7 @@ Links to articles in Prince's hometown paper:
     > 
     > Somewhere, somehow, Prince is cracking up.
 
------
+----
 
  - [**"Gospel of Prince preached at Minnesota seminary"**](http://www.startribune.com/gospel-of-prince-preached-at-minnesota-seminary/508503562/) by Jean Hopfensperger - 12 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/gospel-of-prince-preached-at-minnesota-seminary/508503562/))
 
@@ -146,12 +146,12 @@ Links to articles in Prince's hometown paper:
     > 
     > “Even though he sold more than 100 million records and won seven Grammy Awards, little is known about the impact religion and spirituality had on his [Prince’s] music and artistic expression,” said Pamela Ayo Yetunde, an assistant professor at United Theological Seminary in St. Paul, who heads the Theology of Prince committee. “Yet who has not had a ‘holy’ moment listening to one of Prince’s songs or attending one of his concerts?”
 
------
+----
 
  - [**"Pick Six: Praise for Lil Nas X, Bob Mould, Zedd, 'Jay's Longhorn' and more"**](http://www.startribune.com/pick-six-praise-for-lil-nas-x-bob-mould-zedd-jay-s-longhorn-and-more/508453002/) by Jon Bream - 12 April 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/pick-six-praise-for-lil-nas-x-bob-mould-zedd-jay-s-longhorn-and-more/508453002/))
 
     > ESPN’s report on Prince and basketball. Despite a dearth of historic visuals, ESPN managed to entertainingly explore Prince’s love of hoops by interviewing a coach and teammate from Central High, Sheila E, Micki Free and others who played basketball with him. This Final Four piece was enhanced by an artist’s sketches of Prince playing.
 
------
+----
 
 [Home](./)

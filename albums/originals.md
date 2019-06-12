@@ -5,6 +5,16 @@ https://pitchfork.com/thepitch/prince-engineer-peggy-mccreary-interview-original
 
 ----
 
+http://mixdownmag.com.au/engineering-prince-dive-archives
+
+https://wordsbywatts.com.au/2019/06/07/interview-peggy-mccreary-on-recording-prince/
+
+----
+
+https://www.nme.com/reviews/album/prince-prince-originals-review
+
+----
+
 https://slate.com/culture/2019/06/prince-originals-album-review-nothing-compares-2-u.html
 
 ----

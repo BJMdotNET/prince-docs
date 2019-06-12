@@ -20,6 +20,9 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Lisa Coleman](./collaborations/lisa-coleman.md)
  - [Lizzo](./collaborations/lizzo.md)
  - [Karl Hyde (Underworld)](./collaborations/karl-hyde-underworld.md)
+ - [Cat Glover](./collaborations/cat-glover.md)
+ - [Ian Boxill](./collaborations/ian-boxill.md)
+ - [Stef Kamil Carlens](./collaborations/stef-kamil-carlens.md)
 
 -----
 
@@ -46,13 +49,13 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 ## Albums
 
  - [*Originals* (2019)](./albums/originals.md)
- - [*Around the World in a Day* (1985)](./albums/around-the-world-in-a-day-album.md)
+ - [*Around the World in a Day* (1985)](./albums/around-the-world-in-a-day.md)
 
 -----
 
 ## Songs
 
- - [Purple Rain](./songs/purple-rain-song.md)
+ - [Purple Rain](./songs/purple-rain.md)
 
 -----
 
