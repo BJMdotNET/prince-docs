@@ -1,6 +1,14 @@
 
 # Originals (2019)
 
+http://mixdownmag.com.au/engineering-prince-dive-archives
+
+----
+
+https://www.nme.com/reviews/album/prince-prince-originals-review
+
+----
+
 https://slate.com/culture/2019/06/prince-originals-album-review-nothing-compares-2-u.html
 
 ----
