@@ -2,6 +2,18 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"New Prince store at MSP airport reels in fandom"**](http://www.startribune.com/new-prince-store-at-msp-airport-reels-in-fandom/511212802/) by Jackie Crosby - 12 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/new-prince-store-at-msp-airport-reels-in-fandom/511212802/))
+
+    > A first-of-a-kind Prince merch store opened quietly at the MSP Airport Monday, but fans sniffed it out.
+    > 
+    > Prince fans were lined up and so eager to get inside a new retail store at the Minneapolis-St. Paul International Airport, they persuaded the staff to open doors 45 minutes early on opening day Monday.
+    > 
+    > The store, located in the main mall area at Terminal 1 near the south checkpoint, is the first of its kind and packed with more items than the gift shop at Paisley Park, which had been the only brick-and-mortar site with an expanded line of official Prince merchandise.
+    > 
+    > Branded simply as Prince, the store sells t-shirts, concert paraphernalia, albums, books, CDs and movies as well as keychains, magnets, stickers and other trinkets. There are Minnesota-themed items, such as a Twins baseball mug with the Prince love symbol.
+
+----
+
  - [**"Prince rules collector site Discogs' '100 Most Expensive Records' list"**](http://www.startribune.com/prince-rules-collector-site-discogs-100-most-expensive-records-list/511122062/) by Chris Riemenschneider - 11 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/prince-rules-collector-site-discogs-100-most-expensive-records-list/511122062/))
 
     > Record geeks love Prince and his unconventional release methods. That was made obvious again by the predominant album-collectors website Discogs, which just issued a new list Monday of the “Top 100 Most Expensive Records,” culled from its 14 years in the business of buying and selling rare music items.
