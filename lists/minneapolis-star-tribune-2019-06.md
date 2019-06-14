@@ -2,6 +2,14 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Street names on Prince's former Chanhassen property allude to the late star -- Street names to honor Prince in development on land once owned by late star"**](http://www.startribune.com/street-names-for-chanhassen-development-on-prince-s-former-property-allude-to-the-late-star/511245822/) by Katy Read - 13 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/street-names-for-chanhassen-development-on-prince-s-former-property-allude-to-the-late-star/511245822/))
+
+    > Street names proposed for a Chanhassen residential neighborhood to be built on property once owned by Prince will include references to the late superstar's songs and family.
+    > 
+    > Lennar Corp., which is developing the property, has proposed a plan with new streets named Dove Court, Raspberry Road and Alphabet Street.
+
+----
+
  - [**"New Prince store at MSP airport reels in fandom"**](http://www.startribune.com/new-prince-store-at-msp-airport-reels-in-fandom/511212802/) by Jackie Crosby - 12 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/new-prince-store-at-msp-airport-reels-in-fandom/511212802/))
 
     > A first-of-a-kind Prince merch store opened quietly at the MSP Airport Monday, but fans sniffed it out.
