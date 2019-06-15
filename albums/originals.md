@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+http://www.muziq.fr/coulisses-de-prince-originals-michael-howe/
+
+----
+
 https://pitchfork.com/thepitch/prince-engineer-peggy-mccreary-interview-originals/
 
 ----
