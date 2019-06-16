@@ -59,9 +59,15 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
 -----
 
+## Books
+
+ - [Books](./books/books.md)
+ - [Hijinx and Hearsay: Scenester Stories from Minnesota's Pop Life](./books/hijinx-and-hearsay.md)
+
+-----
+
 ## Lists
 
- - [Books](./lists/books.md)
  - [Minneapolis Star Tribune](./lists/minneapolis-star-tribune.md)
  - [Minnesota Spokesman-Recorder](./lists/spokesman-recorder.md)
  - [City Pages](./lists/city-pages.md)
