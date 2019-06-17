@@ -2,6 +2,12 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"On a night honoring Prince, Twins fans show they're delirious once again -- Remember those small crowds at Target Field in April and May? They were a distant memory Friday night."**](http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/) by Patrick Reusse - 15 June 2019
+
+    > Kansas City was in town for the first of three trips, and there were 10,000 Prince jerseys being given away, it was the start of Joe Mauer weekend, and there were postgame fireworks, but it was the baseball that had the announced crowd of 38,898 jumping.
+
+----
+
  - [**"Street names on Prince's former Chanhassen property allude to the late star -- Street names to honor Prince in development on land once owned by late star"**](http://www.startribune.com/street-names-for-chanhassen-development-on-prince-s-former-property-allude-to-the-late-star/511245822/) by Katy Read - 13 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/street-names-for-chanhassen-development-on-prince-s-former-property-allude-to-the-late-star/511245822/))
 
     > Street names proposed for a Chanhassen residential neighborhood to be built on property once owned by Prince will include references to the late superstar's songs and family.
