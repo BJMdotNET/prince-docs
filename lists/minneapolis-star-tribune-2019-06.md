@@ -2,7 +2,7 @@
 
 Links to articles in Prince's hometown paper:
 
- - [**"On a night honoring Prince, Twins fans show they're delirious once again -- Remember those small crowds at Target Field in April and May? They were a distant memory Friday night."**](http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/) by Patrick Reusse - 15 June 2019
+ - [**"On a night honoring Prince, Twins fans show they're delirious once again -- Remember those small crowds at Target Field in April and May? They were a distant memory Friday night."**](http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/) by Patrick Reusse - 15 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/))
 
     > Kansas City was in town for the first of three trips, and there were 10,000 Prince jerseys being given away, it was the start of Joe Mauer weekend, and there were postgame fireworks, but it was the baseball that had the announced crowd of 38,898 jumping.
 
@@ -86,7 +86,7 @@ Links to articles in Prince's hometown paper:
 
 ----
 
- - [**"Remembering when Prince wrote that song for you"**](http://www.startribune.com/remembering-when-prince-wrote-that-song-for-you/510818462/) by MESFIN FEKADU (Associated Press) - 4 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/remembering-when-prince-wrote-that-song-for-you/510818462/))
+ - [**"Remembering when Prince wrote that song for you"**](http://www.startribune.com/remembering-when-prince-wrote-that-song-for-you/510818462/) by Mesfin Fekadu (Associated Press) - 4 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/remembering-when-prince-wrote-that-song-for-you/510818462/))
 
     > By the mid-1980s, the Bangles were already a successful band, touring across the world with airplay on college radio, but they hadn't hit the mainstream in a major way. That's when Prince gave them the gift of a lifetime by crafting a perfect piece of pop confection known to the masses as “Manic Monday.”
     > 
