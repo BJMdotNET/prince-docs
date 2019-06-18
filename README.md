@@ -27,6 +27,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 -----
 
 ## Documentaries
+
  - [Mr. Nelson: On The North Side (currently unreleased)](./documentaries/mr-nelson-on-the-north-side.md)
  - [Prince: Pop Life (currently unreleased)](./documentaries/prince-pop-life.md)
  - [Prince - The Peach & Black Times (coming September 2019)](./documentaries/prince-the-peach-and-black-times.md)

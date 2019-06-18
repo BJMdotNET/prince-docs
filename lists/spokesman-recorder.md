@@ -1,6 +1,15 @@
 
 # Minnesota Spokesman-Recorder
 
+ - [**"More than music: St. Paul recording arts school makes high marks"**](http://spokesman-recorder.com/2019/06/15/more-than-music-st-paul-recording-arts-school-makes-high-marks/) by Dwight Hobbes - 15 June 2019
+ 
+    > Sounds of Blackness leader Gary Hines recalled, “Brother TC Ellis [HSRA founder] and I had talked about a project for Sounds and HSRA. I was asked to write and produce.
+	>
+	> “In one of my last conversations with Prince, he encouraged me to write a song focusing in on youth, teaching them history, heritage, and legacy. God sent me the title, ‘Royalty.’ A message especially for our youth.” Students helped record the track, performed it and are featured in the video.
+ 
+----
+
+
  - [**"Prince and the B-Sides: a love story"**](http://spokesman-recorder.com/2019/06/07/prince-and-the-b-sides-a-love-story/) by Tony Kiene - June 7, 2019
  
     > Yet by this time, the songs that graced each Prince album — as good as they were — did not always fully satiate the most hardcore fans who knew there was more to be heard. That’s because Prince started to employ what noted author Michaelangelo Matos adroitly refers to as a “Prince’s B-side strategy.”
