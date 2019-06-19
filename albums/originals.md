@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://www.pastemagazine.com/articles/2019/06/prince-originals-review.html
+
+----
+
 http://www.muziq.fr/coulisses-de-prince-originals-michael-howe/
 
 ----
