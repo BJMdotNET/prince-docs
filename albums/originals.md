@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://www.npr.org/2019/06/21/734176868/how-prince-worked-his-magic-on-the-bangles-manic-monday
+
+----
+
 https://www.pastemagazine.com/articles/2019/06/prince-originals-review.html
 
 ----
