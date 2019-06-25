@@ -2,6 +2,12 @@
 
 Links to articles in Prince's hometown paper:
 
+ - [**"Prince's Caribbean estate sells for $10.8 million -- Beachfront home with purple driveway was bought by North Carolina businessman"**](http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/) by Kim Palmer - 20 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/))
+
+    > Prince’s Caribbean beach house has found a buyer, according to the Wall Street Journal. The music superstar, who died in 2016, bought the retreat about five years earlier on an island in the Turks and Caicos. The property includes a six-bedroom, 10,000-square-foot house on 6 acres set on a peninsula. There’s also a tennis court, a marina, two private beaches, a gatehouse and multiple cabanas.
+
+----
+
  - [**"On a night honoring Prince, Twins fans show they're delirious once again -- Remember those small crowds at Target Field in April and May? They were a distant memory Friday night."**](http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/) by Patrick Reusse - 15 June 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/on-a-night-honoring-prince-twins-fans-show-they-re-delirious-once-again/511338901/))
 
     > Kansas City was in town for the first of three trips, and there were 10,000 Prince jerseys being given away, it was the start of Joe Mauer weekend, and there were postgame fireworks, but it was the baseball that had the announced crowd of 38,898 jumping.
