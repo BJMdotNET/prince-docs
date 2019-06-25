@@ -1,6 +1,14 @@
 
 # Originals (2019)
 
+https://www.billboard.com/articles/news/8517576/prince-originals-album-covers
+
+----
+
+https://afropunk.com/2019/06/purple-music-thinking-about-princes-originals/
+
+----
+
 https://www.npr.org/2019/06/21/734176868/how-prince-worked-his-magic-on-the-bangles-manic-monday
 
 ----
