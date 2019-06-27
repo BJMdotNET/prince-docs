@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://www.billboard.com/articles/news/8517755/prince-collaborators-originals
+
+----
+
 https://www.prosoundnetwork.com/recording/princes-originals-mastered-by-grundman
 
 ----
