@@ -1,3 +1,4 @@
+
 # A backup of various Prince-related docs
 
 Instead of letting things pile up on my HD, I decided to curate the Prince-related items I come accross. Hence this site.
@@ -23,6 +24,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Cat Glover](./collaborations/cat-glover.md)
  - [Ian Boxill](./collaborations/ian-boxill.md)
  - [Stef Kamil Carlens](./collaborations/stef-kamil-carlens.md)
+ - [Roger Linn](./collaborations/roger-linn.md)
 
 -----
 
@@ -51,6 +53,7 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
 
  - [*Originals* (2019)](./albums/originals.md)
  - [*Around the World in a Day* (1985)](./albums/around-the-world-in-a-day.md)
+ - [*Purple Rain* (1984)](./albums/purple-rain.md)
 
 -----
 
@@ -91,4 +94,8 @@ Instead of letting things pile up on my HD, I decided to curate the Prince-relat
  - [Paramount Players Pic On The Day A Wyoming Hotel Maid Won A Dream Date With Prince](./derivatives/win-a-date-with-prince-movie.md)
  - [Wine Country](./derivatives/wine-country.md)
 
+-----
 
+## Opinions
+
+ - [Prince sites](./opinions/prince-sites.md)
