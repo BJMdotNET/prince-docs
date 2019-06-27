@@ -1,6 +1,10 @@
 
 # Originals (2019)
 
+https://www.prosoundnetwork.com/recording/princes-originals-mastered-by-grundman
+
+----
+
 https://www.billboard.com/articles/news/8517576/prince-originals-album-covers
 
 ----
