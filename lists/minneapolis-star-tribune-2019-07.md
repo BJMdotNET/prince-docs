@@ -2,7 +2,7 @@
 
 Links to articles in Prince's hometown paper:
 
- - [**"Judge: Andy Warhol didn't violate Prince picture copyright"**](http://www.startribune.com/judge-andy-warhol-didn-t-violate-prince-picture-copyright/512091952/) by Jon Bream - 1 July 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/judge-andy-warhol-didn-t-violate-prince-picture-copyright/512091952/))
+ - [**"Judge: Andy Warhol didn't violate Prince picture copyright"**](http://www.startribune.com/judge-andy-warhol-didn-t-violate-prince-picture-copyright/512091952/) by Larry Neumeister (Associated Press) - 1 July 2019 ([mirror](https://web.archive.org/web/*/http://www.startribune.com/judge-andy-warhol-didn-t-violate-prince-picture-copyright/512091952/))
 
     > Andy Warhol transcended a photographer's copyright by transforming a picture of a vulnerable and uncomfortable Prince into an artwork that made the singer an "iconic, larger-than-life figure," a judge ruled Monday.
 
