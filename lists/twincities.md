@@ -1,6 +1,12 @@
 
 # TwinCities.com - Pioneer Press
 
+ - [**"The Family’s Paul Peterson returns with a pair of new solo songs that sound a lot like Prince"**](https://www.twincities.com/2019/07/18/the-familys-paul-peterson-returns-with-a-pair-of-new-solo-songs-that-sound-a-lot-like-prince/) By ROSS RAIHALA -- 18 July 2019
+ 
+    > Paul Peterson is back in business as a solo artist with some new songs heavily steeped in the classic Minneapolis sound.
+    
+-----
+
  - [**"John Shipley: It’s time to let Prince rest in peace"**](https://www.twincities.com/2019/04/29/john-shipley-its-time-to-let-prince-rest-in-peace/) By JOHN SHIPLEY -- 29 April 2019
  
     > OK, Minnesota, we need to talk about Prince. It’s time to let the man rest in peace.
