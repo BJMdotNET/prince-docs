@@ -1,6 +1,10 @@
 
 # Suzanne Vega
 
+http://www.suzannevega.com/2016/05/04/suzannes-letter-from-prince/
+
+----
+
 Some excerpts from [***"Tales From Suzanne Vega"***](https://www.grammy.com/grammys/news/tales-suzanne-vega) by Steve Baltin on 2 December 2014:
 
 > GRAMMY-winning singer/songwriter discusses the making of her new album, Tales From The Realm Of The Queen Of Pentacles, and being years ahead of "Game Of Thrones"
