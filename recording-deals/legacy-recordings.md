@@ -1,11 +1,15 @@
 
 # Legacy Recordings
 
+ - [**"The Prince Estate in Partnership with Legacy Recordings Announces Next Wave of Titles in Definitive Prince Reissue Project Coming Friday, September 13"**](https://www.legacyrecordings.com/2019/08/01/the-prince-estate-in-partnership-with-legacy-recordings-announces-next-wave-of-titles-in-definitive-prince-reissue-project-coming-friday-september-13/) - 1 August 2019
+ 
+    > The Prince Estate and Legacy Recordings, a division of Sony Music Entertainment, are pleased to announce the next round of releases to be issued through the partnership’s ongoing definitive Prince catalog project. Three essential Prince titles–The VERSACE Experience (PRELUDE 2 GOLD), Chaos and Disorder, and Emancipation–will be available Friday, September 13.
+
+-----
+
  - [**"The Prince Estate in Partnership with Legacy Recordings Announce Next Wave of Physical Titles in Definitive Catalog Rerelease Project with Prince’s Ultimate Rave on Friday, April 26, 2019"**](https://www.legacyrecordings.com/2019/02/22/the-prince-estate-in-partnership-with-legacy-recordings-announce-next-wave-of-physical-titles-cd-dvd-vinyl-in-definitive-catalog-rerelease-project-with-princes-ultimate-rave-on-friday-april-26-2/) - February 22, 2019
  
     > The Prince Estate and Legacy Recordings, a division of Sony Music Entertainment, are pleased to announce the next round of physical titles set for release as part of the ongoing and definitive Prince catalog project. Next up will be Prince’s Ultimate Rave on Friday, April 26.
-    
-    - [Press release @ PRNewswire](https://www.prnewswire.com/news-releases/the-prince-estate-in-partnership-with-legacy-recordings-announce-first-wave-of-physical-titles-cdvinyl-in-definitive-catalog-rerelease-project-300760870.html)
 
 -----
 
