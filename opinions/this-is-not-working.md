@@ -58,4 +58,25 @@ And please give us worthwhile Record Store Day releases.
 I still don't understand why we didn't get *Camille*; it was an open goal and you didn't even punt.
 Yet we did get a truncated edition of *1999*.
 
+I'm hearing rumors that the next SDE might be a combination of *Diamonds & Pearls* and *O(+>* a.k.a. *The Symbol Album*.
+Frankly: that would be a baffling decision. 
+Perhaps you feel that there aren't enough outtakes available for each of these two albums.
+If that is the case, I urge you to abandon the now conventional configuration for an SDE.
+Sure, keep the remastered album and the disc with single edits and remixes etc. 
+(Though in this case it would be multiple discs, since all the incarnations of "Gett Off" would fill almost a single CD.)
+And still include a concert video and a recording of a different concert. 
+In fact, when it comes to *O(+>* I'd argue that since there are two considerably different tours ("Act I" and "Act II"), 
+each would be deserving of a concert video plus audio recording.
+But each of these albums also had an associated video collection: *Diamonds And Pearls Video Collection* and *3 Chains O’ Gold*. 
+Both long out of print, and in the case of *3 Chains O’ Gold* there hasn't even been a DVD release.
+Why not include these in the SDE if there is a lack of outtakes?
+
+Can there also be a little more openess? So much of Prince's classic era remains sparsely documented. 
+Duane Tudahl has published two books, but those mainly focus on years for which there is ample documentation.
+Please allow him access to your archives so he can uncover more previously unknown details.
+Yes, it was great to see surprising entries on the *SOTT* SDE, 
+but going by the current pace I fear most Prince fans will be retirees before they'll learn more about the pre-Sunset Sound era 
+(when Prince worked mostly in his home),
+or everything that happened at Paisley Park.
+
 Thanks in advance.
